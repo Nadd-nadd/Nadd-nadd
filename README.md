@@ -43,7 +43,7 @@ $\color{#7db7ff}{w2i,}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{take}$ $\color{#7d
 
 $\color{#7db7ff}{I}$ $\color{#7db7ff}{hide}$ $\color{#7db7ff}{people}$ $\color{#7db7ff}{if}$ $\color{#7db7ff}{their}$ $\color{#7db7ff}{chat}$ $\color{#7db7ff}{bubble}$ $\color{#7db7ff}{covers}$ $\color{#7db7ff}{my/my}$ $\color{#7db7ff}{friend's}$  $\color{#7db7ff}{chat}$ $\color{#7db7ff}{(sorry..)}$
 
-$\color{#7db7ff}{I}$ $\color{#7db7ff}{don't}$ $\color{#7db7ff}{we}$  $\color{#7db7ff}{gotta}$ $\color{#7db7ff}{talk}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{bit}$ $\color{#7db7ff}{more}$ $\color{#7db7ff}{if}$  $\color{#7db7ff}{u}$  $\color{#7db7ff}{want}$  $\color{#7db7ff}{me}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{add}$ $\color{#7db7ff}{u}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{friends}$
+ $\color{#7db7ff}{We}$  $\color{#7db7ff}{gotta}$ $\color{#7db7ff}{talk}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{bit}$ $\color{#7db7ff}{more}$ $\color{#7db7ff}{if}$  $\color{#7db7ff}{u}$  $\color{#7db7ff}{want}$  $\color{#7db7ff}{me}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{add}$ $\color{#7db7ff}{u}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{friends}$
 
 $\color{#7db7ff}{I}$ $\color{#7db7ff}{don't}$ $\color{#7db7ff}{block}$ $\color{#7db7ff}{unless}$ $\color{#7db7ff}{you're}$ $\color{#7db7ff}{very}$ $\color{#7db7ff}{weird/annoying}$
 
