@@ -42,82 +42,82 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
 <p align="center">
-$\color{#f078ba}{FOR}$ $\color{#f078ba}{PONY}$ $\color{#f078ba}{TOWN}$
+$\color{#ffa1de}{FOR}$ $\color{#ffa1de}{PONY}$ $\color{#ffa1de}{TOWN}$
 </p>
  
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{I'm}$ $\color{#ff99db}{okay}$ $\color{#ff99db}{with}$ $\color{#ff99db}{c+h}$ $\color{#ff99db}{(Especially}$ $\color{#ff99db}{with}$ $\color{#ff99db}{people}$ $\color{#ff99db}{from}$ $\color{#ff99db}{my}$ $\color{#ff99db}{fandoms!)}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I'm}$ $\color{#ff91d9}{okay}$ $\color{#ff91d9}{with}$ $\color{#ff91d9}{c+h}$ $\color{#ff91d9}{(Especially}$ $\color{#ff91d9}{with}$ $\color{#ff91d9}{people}$ $\color{#ff91d9}{from}$ $\color{#ff91d9}{my}$ $\color{#ff91d9}{fandoms!)}$ $\color{#ffa1de}{༘୨୧}$
 </p>
  
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{w2i,}$ $\color{#ff99db}{I}$ $\color{#ff99db}{take}$ $\color{#ff99db}{some}$ $\color{#ff99db}{time}$ $\color{#ff99db}{to}$ $\color{#ff99db}{reply}$ $\color{#ff99db}{sometimes}$ $\color{#ff99db}{so}$ $\color{#ff99db}{plz}$ $\color{#ff99db}{be}$ $\color{#ff99db}{patient!!}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ffa3df}{w2i,}$ $\color{#ffa3df}{I}$ $\color{#ffa3df}{take}$ $\color{#ffa3df}{some}$ $\color{#ffa3df}{time}$ $\color{#ffa3df}{to}$ $\color{#ffa3df}{reply}$ $\color{#ffa3df}{sometimes}$ $\color{#ffa3df}{so}$ $\color{#ffa3df}{plz}$ $\color{#ffa3df}{be}$ $\color{#ffa3df}{patient!!}$ $\color{#ffa1de}{༘୨୧}$
  </p>
  
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{I}$ $\color{#ff99db}{hide}$ $\color{#ff99db}{people}$ $\color{#ff99db}{if}$ $\color{#ff99db}{their}$ $\color{#ff99db}{chat}$ $\color{#ff99db}{bubble}$ $\color{#ff99db}{covers}$ $\color{#ff99db}{my/my}$ $\color{#ff99db}{friend's}$  $\color{#ff99db}{chat}$ $\color{#ff99db}{(sorry..)}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{hide}$ $\color{#ff91d9}{people}$ $\color{#ff91d9}{if}$ $\color{#ff91d9}{their}$ $\color{#ff91d9}{chat}$ $\color{#ff91d9}{bubble}$ $\color{#ff91d9}{covers}$ $\color{#ff91d9}{my/my}$ $\color{#ff91d9}{friend's}$  $\color{#ff91d9}{chat}$ $\color{#ff91d9}{(sorry..)}$ $\color{#ffa1de}{༘୨୧}$
  </p>
  
 <p align="center">
- $\color{#f078ba}{✦}$ $\color{#ff99db}{I}$  $\color{#ff99db}{don't}$ $\color{#ff99db}{add}$ $\color{#ff99db}{a}$ $\color{#ff99db}{randoms}$ $\color{#ff99db}{unless}$ $\color{#ff99db}{I've}$  $\color{#ff99db}{talked}$  $\color{#ff99db}{to}$  $\color{#ff99db}{them}$ $\color{#ff99db}{a}$ $\color{#ff99db}{lot}$ $\color{#ff99db}{before}$ $\color{#f078ba}{✦}$
+ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$  $\color{#ff91d9}{don't}$ $\color{#ff91d9}{add}$ $\color{#ff91d9}{a}$ $\color{#ff91d9}{randoms}$ $\color{#ff91d9}{unless}$ $\color{#ff91d9}{I've}$  $\color{#ff91d9}{talked}$  $\color{#ff91d9}{to}$  $\color{#ff91d9}{them}$ $\color{#ff91d9}{a}$ $\color{#ff91d9}{lot}$ $\color{#ff91d9}{before}$ $\color{#ffa1de}{༘୨୧}$
  </p>
  
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{I}$ $\color{#ff99db}{don't}$ $\color{#ff99db}{block}$ $\color{#ff99db}{unless}$ $\color{#ff99db}{you're}$ $\color{#ff99db}{very}$ $\color{#ff99db}{weird/annoying}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{don't}$ $\color{#ff91d9}{block}$ $\color{#ff91d9}{unless}$ $\color{#ff91d9}{you're}$ $\color{#ff91d9}{very}$ $\color{#ff91d9}{weird/annoying}$ $\color{#ffa1de}{༘୨୧}$
 </p>
 
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{I}$ $\color{#ff99db}{mostly}$ $\color{#ff99db}{sit}$ $\color{#ff99db}{by}$ $\color{#ff99db}{my}$ $\color{#ff99db}{friends,}$ $\color{#ff99db}{but}$ $\color{#ff99db}{when}$ $\color{#ff99db}{I'm}$ $\color{#ff99db}{alone}$ $\color{#ff99db}{you}$ $\color{#ff99db}{can}$ $\color{#ff99db}{find}$ $\color{#ff99db}{me}$ $\color{#ff99db}{around}$ $\color{#ff99db}{MHA}$ $\color{#ff99db}{or}$ $\color{#ff99db}{docks}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{mostly}$ $\color{#ff91d9}{sit}$ $\color{#ff91d9}{by}$ $\color{#ff91d9}{my}$ $\color{#ff91d9}{friends,}$ $\color{#ff91d9}{but}$ $\color{#ff91d9}{when}$ $\color{#ff91d9}{I'm}$ $\color{#ff91d9}{alone}$ $\color{#ff91d9}{you}$ $\color{#ff91d9}{can}$ $\color{#ff91d9}{find}$ $\color{#ff91d9}{me}$ $\color{#ff91d9}{around}$ $\color{#ff91d9}{MHA}$ $\color{#ff91d9}{or}$ $\color{#ff91d9}{docks}$ $\color{#ffa1de}{༘୨୧}$
 </p>    
 
 <p align="center">
-$\color{#f078ba}{✦}$ $\color{#ff99db}{I}$ $\color{#ff99db}{might}$ $\color{#ff99db}{also}$ $\color{#ff99db}{not}$ $\color{#ff99db}{always}$ $\color{#ff99db}{be}$ $\color{#ff99db}{up}$ $\color{#ff99db}{for}$ $\color{#ff99db}{a}$ $\color{#ff99db}{chat..}$ $\color{#ff99db}{I}$ $\color{#ff99db}{put}$ $\color{#ff99db}{dnd}$ $\color{#ff99db}{when}$ $\color{#ff99db}{that}$ $\color{#ff99db}{happens}$ $\color{#f078ba}{✦}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\color{#ff91d9}{also}$ $\color{#ff91d9}{not}$ $\color{#ff91d9}{always}$ $\color{#ff91d9}{be}$ $\color{#ff91d9}{up}$ $\color{#ff91d9}{for}$ $\color{#ff91d9}{a}$ $\color{#ff91d9}{chat..}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{put}$ $\color{#ff91d9}{dnd}$ $\color{#ff91d9}{when}$ $\color{#ff91d9}{that}$ $\color{#ff91d9}{happens}$ $\color{#ffa1de}{༘୨୧}$
 </p>
 
 
 
 <p align="center">
-$\color{#b5daff}{DNI!}$
+$\color{#ffd6f1}{DNI!}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Proshippers/darkshippers}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Proshippers/darkshippers}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Racist people}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Racist people}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Homophobes}$ 
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Homophobes}$ 
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Radqueers}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Radqueers}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Bad}$ $\color{#7db7ff}{humour}$ $\color{#7db7ff}{(sorry}$ $\color{#7db7ff}{ig}$ $\color{#7db7ff}{><)}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Bad}$ $\color{#ffb5e5}{humour}$ $\color{#ffb5e5}{(sorry}$ $\color{#ffb5e5}{ig}$ $\color{#ffb5e5}{><)}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Non-sharing yumes}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Non-sharing yumes}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Dry}$ $\color{#7db7ff}{people}$ $\color{#7db7ff}{(unless}$ $\color{#7db7ff}{we're}$ $\color{#7db7ff}{very}$ $\color{#7db7ff}{close)}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Dry}$ $\color{#ffb5e5}{people}$ $\color{#ffb5e5}{(unless}$ $\color{#ffb5e5}{we're}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{close)}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Incest}$ $\color{#7db7ff}{supporters}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Incest}$ $\color{#ffb5e5}{supporters}$
 </p>
 <p align="center">
-$\color{#dbebff}{✦}$ $\color{#7db7ff}{Zoophilia}$ $\color{#7db7ff}{supporters}$
-</p>
-
-
-<p align="center">
-$\color{#b5daff}{If}$ $\color{#b5daff}{you're}$ $\color{#b5daff}{looking}$ $\color{#b5daff}{for}$ $\color{#b5daff}{more}$ $\color{#b5daff}{info,}$ $\color{#b5daff}{check}$ $\color{#b5daff}{out}$ $\color{#b5daff}{my}$ $\color{#b5daff}{links!}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}$
 </p>
 
 
 <p align="center">
-$\color{#b0d4ff}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#dbebff}{✦}$ <a href="https://nadnad.straw.page/">Strawpage! (outdated..)</a> $\color{#dbebff}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
-$\color{#dbebff}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a> $\color{#dbebff}{✦}$ <a href="https://guns.lol/nadnadd ">Guns.lol!</a> $\color{#b0d4ff}{ ⋯⋅๑•✦}$
+$\color{#ffd6f1}{If}$ $\color{#ffd6f1}{you're}$ $\color{#ffd6f1}{looking}$ $\color{#ffd6f1}{for}$ $\color{#ffd6f1}{more}$ $\color{#ffd6f1}{info,}$ $\color{#ffd6f1}{check}$ $\color{#ffd6f1}{out}$ $\color{#ffd6f1}{my}$ $\color{#ffd6f1}{links!}$
+</p>
+
+
+<p align="center">
+$\color{#ffd6f1}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#ffb5e5}{✦}$ <a href="https://nadnad.straw.page/">Strawpage! (outdated..)</a> $\color{#ffb5e5}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
+$\color{#ffb5e5}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a> $\color{#ffb5e5}{✦}$ <a href="https://guns.lol/nadnadd ">Guns.lol!</a> $\color{#ffd6f1}{ ⋯⋅๑•✦}$
 </p>
 
 <p align="center">
- $\color{#b5daff}{THIS}$ $\color{#b5daff}{IS}$ $\color{#b5daff}{STILL}$ $\color{#b5daff}{A}$ $\color{#b5daff}{HEAVY}$ $\color{#b5daff}{WIP!!!}$
-  $\color{#dbebff}{Don't}$ $\color{#dbebff}{expect}$ $\color{#dbebff}{much..}$
+ $\color{#ffb5e5}{THIS}$ $\color{#ffb5e5}{IS}$ $\color{#ffb5e5}{STILL}$ $\color{#ffb5e5}{A}$ $\color{#ffb5e5}{HEAVY}$ $\color{#ffb5e5}{WIP!!!}$
+  $\color{#ffd6f1}{Don't}$ $\color{#ffd6f1}{expect}$ $\color{#ffd6f1}{much..}$
 </p>
