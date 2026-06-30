@@ -1,63 +1,79 @@
 <p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&#b5d1ff=color">
-</p>
-<img src="link">
- <p align="center">   $\color{#7db7ff}{Haihoo!}$ 
+<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=ffb5e5" alt="Profile view counter on GitHub">
 </p>
 
 <p align="center">
- $\color{#b5daff}{⇣ }$ $\color{#7db7ff}{I'm}$ $\color{#7db7ff}{Nadnad}$ $\color{#7db7ff}{..}$ $\color{#7db7ff}{Here's}$ $\color{#7db7ff}{some}$ $\color{#7db7ff}{basic}$ $\color{#7db7ff}{info}$ 
-$\color{#7db7ff}{abt}$ $\color{#7db7ff}{me!}$ $\color{#b5daff}{⇣ }$
+<img src="https://i.imgur.com/INmGUOi.png">
+</p>
+
+ <p align="center">   $\color{#ffb5e5}{Haihoo!}$  $\color{#ffd6f1}{>⩊<}$ 
 </p>
 
 <p align="center">
-$\color{#b5daff}{BEFORE}$ $\color{#b5daff}{YOU}$ $\color{#b5daff}{INTERACT!}$ 
+ $\color{#ffd6f1}{⇣ }$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad}$ $\color{#ffb5e5}{..}$ $\color{#ffb5e5}{Here's}$ $\color{#ffb5e5}{some}$ $\color{#ffb5e5}{basic}$ $\color{#ffb5e5}{info}$ 
+$\color{#ffb5e5}{abt}$ $\color{#ffb5e5}{me!}$ $\color{#ffd6f1}{⇣ }$
+</p>
+
+<p align="center">
+$\color{#ffd6f1}{BEFORE}$ $\color{#ffd6f1}{YOU}$ $\color{#ffd6f1}{INTERACT!}$ 
 </p>
 <p align="center">
- $\color{#7db7ff}{I'm}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{minor!}$ $\color{#7db7ff}{NSFW}$ $\color{#7db7ff}{jokes}$ $\color{#7db7ff}{are}$ $\color{#7db7ff}{fine}$ $\color{#7db7ff}{until}$ $\color{#7db7ff}{you're}$ $\color{#7db7ff}{not}$ $\color{#7db7ff}{too}$ $\color{#7db7ff}{weird}$ $\color{#7db7ff}{with}$ $\color{#7db7ff}{it}$ $\color{#7db7ff}{(><)}$
+$\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{minor!}$ $\color{#ffb5e5}{NSFW}$ $\color{#ffb5e5}{jokes}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{fine}$ $\color{#ffb5e5}{until}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{too}$ $\color{#ffb5e5}{weird}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{(><)}$ $\color{#ffd6f1}{𖹭}$
 
  <p align="center">
-$\color{#7db7ff}{I}$ $\color{#7db7ff}{HEAVYLY}$ $\color{#7db7ff}{cathegorize}$ $\color{#7db7ff}{people.}$ $\color{#7db7ff}{Sorry}$ 
-$\color{#7db7ff}{not}$ $\color{#7db7ff}{sorry.}$
+$\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{Sorry}$ 
+$\color{#ffb5e5}{not}$ $\color{#ffb5e5}{sorry.}$ $\color{#ffb5e5}{𖹭}$
 
 </p>
 
 <p align="center">
-  $\color{#7db7ff}{I}$ $\color{#7db7ff}{tend}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{be}$ $\color{#7db7ff}{very}$ $\color{#7db7ff}{quiet}$ $\color{#7db7ff}{-}$ 
-  $\color{#7db7ff}{I}$ $\color{#7db7ff}{get}$ $\color{#7db7ff}{more}$ $\color{#7db7ff}{open}$ $\color{#7db7ff}{if}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{topic}$ $\color{#7db7ff}{interests}$ $\color{#7db7ff}{me!}$
+$\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{tend}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{quiet}$ $\color{#ffb5e5}{-}$ 
+  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{more}$ $\color{#ffb5e5}{open}$ $\color{#ffb5e5}{if}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{topic}$ $\color{#ffb5e5}{interests}$ $\color{#ffb5e5}{me!}$ $\color{#ffd6f1}{𖹭}$
 
 </p>
 
 <p align="center">
-  $\color{#7db7ff}{I}$ $\color{#7db7ff}{may}$ $\color{#7db7ff}{also}$ $\color{#7db7ff}{be}$ $\color{#7db7ff}{silent}$ $\color{#7db7ff}{for}$ $\color{#7db7ff}{hours}$ $\color{#7db7ff}{or}$ $\color{#7db7ff}{even}$ 
-  $\color{#7db7ff}{days..}$ $\color{#7db7ff}{Not}$ $\color{#7db7ff}{because}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{hate}$ $\color{#7db7ff}{you}$ $\color{#7db7ff}{I}$ 
-  $\color{#7db7ff}{just}$ $\color{#7db7ff}{don't}$ $\color{#7db7ff}{know}$ $\color{#7db7ff}{what}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{say!}$ $\color{#7db7ff}{(◞‸ ◟)💧}$ $\color{#7db7ff}{(in}$ $\color{#7db7ff}{most}$ $\color{#7db7ff}{cases)}$
+$\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ffb5e5}{also}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{silent}$ $\color{#ffb5e5}{for}$ $\color{#ffb5e5}{hours}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{even}$ 
+  $\color{#ffb5e5}{days..}$ $\color{#ffb5e5}{Not}$ $\color{#ffb5e5}{because}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{hate}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{I}$ 
+  $\color{#ffb5e5}{just}$ $\color{#ffb5e5}{don't}$ $\color{#ffb5e5}{know}$ $\color{#ffb5e5}{what}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{say!}$ $\color{#ffb5e5}{(◞‸ ◟)💧}$ $\color{#ffb5e5}{(in}$ $\color{#ffb5e5}{most}$ $\color{#ffb5e5}{cases)}$ $\color{#ffd6f1}{𖹭}$
   </p>
 
 
 
 <p align="center">
-$\color{#b5daff}{FOR}$ $\color{#b5daff}{PONY}$ $\color{#b5daff}{TOWN}$
+$\color{#fcbbdc}{FOR}$ $\color{#fcbbdc}{PONY}$ $\color{#fcbbdc}{TOWN}$
+</p>
+ 
 <p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{I'm}$ $\color{#7db7ff}{okay}$ $\color{#7db7ff}{with}$ $\color{#7db7ff}{c+h}$ $\color{#7db7ff}{(Especially}$ $\color{#7db7ff}{with}$ $\color{#7db7ff}{people}$ $\color{#7db7ff}{from}$ $\color{#7db7ff}{my}$ $\color{#7db7ff}{fandoms!)}$ $\color{#4e80ed}{✦}$
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I'm}$ $\color{#ffa1d1}{okay}$ $\color{#ffa1d1}{with}$ $\color{#ffa1d1}{c+h}$ $\color{#ffa1d1}{(Especially}$ $\color{#ffa1d1}{with}$ $\color{#ffa1d1}{people}$ $\color{#ffa1d1}{from}$ $\color{#ffa1d1}{my}$ $\color{#ffa1d1}{fandoms!)}$ $\color{#fcbbdc}{✦}$
+</p>
+ 
 <p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{w2i,}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{take}$ $\color{#7db7ff}{some}$ $\color{#7db7ff}{time}$ $\color{#7db7ff}{to}$ $\color{#7db7ff}{reply}$ $\color{#7db7ff}{sometimes}$ $\color{#7db7ff}{so}$ $\color{#7db7ff}{plz}$ $\color{#7db7ff}{be}$ $\color{#7db7ff}{patient!!}$ $\color{#4e80ed}{✦}$
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{w2i,}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{take}$ $\color{#ffa1d1}{some}$ $\color{#ffa1d1}{time}$ $\color{#ffa1d1}{to}$ $\color{#ffa1d1}{reply}$ $\color{#ffa1d1}{sometimes}$ $\color{#ffa1d1}{so}$ $\color{#ffa1d1}{plz}$ $\color{#ffa1d1}{be}$ $\color{#ffa1d1}{patient!!}$ $\color{#fcbbdc}{✦}$
+ </p>
+ 
 <p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{hide}$ $\color{#7db7ff}{people}$ $\color{#7db7ff}{if}$ $\color{#7db7ff}{their}$ $\color{#7db7ff}{chat}$ $\color{#7db7ff}{bubble}$ $\color{#7db7ff}{covers}$ $\color{#7db7ff}{my/my}$ $\color{#7db7ff}{friend's}$  $\color{#7db7ff}{chat}$ $\color{#7db7ff}{(sorry..)}$ $\color{#4e80ed}{✦}$
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{hide}$ $\color{#ffa1d1}{people}$ $\color{#ffa1d1}{if}$ $\color{#ffa1d1}{their}$ $\color{#ffa1d1}{chat}$ $\color{#ffa1d1}{bubble}$ $\color{#ffa1d1}{covers}$ $\color{#ffa1d1}{my/my}$ $\color{#ffa1d1}{friend's}$  $\color{#ffa1d1}{chat}$ $\color{#ffa1d1}{(sorry..)}$ $\color{#fcbbdc}{✦}$
+ </p>
+ 
 <p align="center">
- $\color{#4e80ed}{✦}$ $\color{#7db7ff}{I}$  $\color{#7db7ff}{don't}$ $\color{#7db7ff}{add}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{randoms}$ $\color{#7db7ff}{unless}$ $\color{#7db7ff}{I've}$  $\color{#7db7ff}{talked}$  $\color{#7db7ff}{to}$  $\color{#7db7ff}{them}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{lot}$ $\color{#7db7ff}{before}$ $\color{#4e80ed}{✦}$
+ $\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I}$  $\color{#ffa1d1}{don't}$ $\color{#ffa1d1}{add}$ $\color{#ffa1d1}{a}$ $\color{#ffa1d1}{randoms}$ $\color{#ffa1d1}{unless}$ $\color{#ffa1d1}{I've}$  $\color{#ffa1d1}{talked}$  $\color{#ffa1d1}{to}$  $\color{#ffa1d1}{them}$ $\color{#ffa1d1}{a}$ $\color{#ffa1d1}{lot}$ $\color{#ffa1d1}{before}$ $\color{#fcbbdc}{✦}$
+ </p>
+ 
 <p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{don't}$ $\color{#7db7ff}{block}$ $\color{#7db7ff}{unless}$ $\color{#7db7ff}{you're}$ $\color{#7db7ff}{very}$ $\color{#7db7ff}{weird/annoying}$ $\color{#4e80ed}{✦}$
-<p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{mostly}$ $\color{#7db7ff}{sit}$ $\color{#7db7ff}{by}$ $\color{#7db7ff}{my}$ $\color{#7db7ff}{friends,}$ $\color{#7db7ff}{but}$ $\color{#7db7ff}{when}$ $\color{#7db7ff}{I'm}$ $\color{#7db7ff}{alone}$
-$\color{#7db7ff}{you}$ $\color{#7db7ff}{can}$ $\color{#7db7ff}{find}$ $\color{#7db7ff}{me}$ $\color{#7db7ff}{around}$ $\color{#7db7ff}{MHA}$ $\color{#7db7ff}{or}$ $\color{#7db7ff}{docks}$ $\color{#4e80ed}{✦}$
-</p>                                                                                                                                                                                                       
-<p align="center">
-$\color{#4e80ed}{✦}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{might}$ $\color{#7db7ff}{also}$ $\color{#7db7ff}{not}$ $\color{#7db7ff}{always}$ $\color{#7db7ff}{be}$ $\color{#7db7ff}{up}$ $\color{#7db7ff}{for}$ $\color{#7db7ff}{a}$ $\color{#7db7ff}{chat..}$ $\color{#7db7ff}{I}$ $\color{#7db7ff}{put}$ $\color{#7db7ff}{dnd}$ $\color{#7db7ff}{when}$ $\color{#7db7ff}{that}$ $\color{#7db7ff}{happens}$ $\color{#4e80ed}{✦}$
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{don't}$ $\color{#ffa1d1}{block}$ $\color{#ffa1d1}{unless}$ $\color{#ffa1d1}{you're}$ $\color{#ffa1d1}{very}$ $\color{#ffa1d1}{weird/annoying}$ $\color{#fcbbdc}{✦}$
 </p>
 
+<p align="center">
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{mostly}$ $\color{#ffa1d1}{sit}$ $\color{#ffa1d1}{by}$ $\color{#ffa1d1}{my}$ $\color{#ffa1d1}{friends,}$ $\color{#ffa1d1}{but}$ $\color{#ffa1d1}{when}$ $\color{#ffa1d1}{I'm}$ $\color{#ffa1d1}{alone}$ $\color{#ffa1d1}{you}$ $\color{#ffa1d1}{can}$ $\color{#ffa1d1}{find}$ $\color{#ffa1d1}{me}$ $\color{#ffa1d1}{around}$ $\color{#ffa1d1}{MHA}$ $\color{#ffa1d1}{or}$ $\color{#ffa1d1}{docks}$ $\color{#fcbbdc}{✦}$
+</p>    
+
+<p align="center">
+$\color{#fcbbdc}{✦}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{might}$ $\color{#ffa1d1}{also}$ $\color{#ffa1d1}{not}$ $\color{#ffa1d1}{always}$ $\color{#ffa1d1}{be}$ $\color{#ffa1d1}{up}$ $\color{#ffa1d1}{for}$ $\color{#ffa1d1}{a}$ $\color{#ffa1d1}{chat..}$ $\color{#ffa1d1}{I}$ $\color{#ffa1d1}{put}$ $\color{#ffa1d1}{dnd}$ $\color{#f58cc2}{when}$ $\color{#ffa1d1}{that}$ $\color{#ffa1d1}{happens}$ $\color{#fcbbdc}{✦}$
 </p>
+
+
 
 <p align="center">
 $\color{#b5daff}{DNI!}$
