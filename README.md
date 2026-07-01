@@ -36,7 +36,7 @@ $\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb
 
  <p align="center">
 $\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{I}$ 
-$\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  $\color{#ffb5e5}{easily}$  $\color{#ffb5e5}{if }$   $\color{#ffb5e5}{you}$   $\color{#ffb5e5}{don't}$   $\color{#ffb5e5}{fit}$   $\color{#ffb5e5}{into}$   $\color{#ffb5e5}{my}$   $\color{#ffb5e5}{weird}$   $\color{#ffb5e5}{set}$  $\color{#ffb5e5}{of}$  $\color{#ffb5e5}{rules}$  $\color{#ffb5e5}{or}$  $\color{#ffb5e5}{wtv..}$  $\color{#ffb5e5}{(sorry}$  $\color{#ffb5e5}{for}$  $\color{#ffb5e5}{that)}$ $\color{#ffb5e5}{𖹭}$
+$\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  $\color{#ffb5e5}{easily}$  $\color{#ffb5e5}{if }$   $\color{#ffb5e5}{you}$   $\color{#ffb5e5}{don't}$   $\color{#ffb5e5}{fit}$   $\color{#ffb5e5}{into}$   $\color{#ffb5e5}{my}$   $\color{#ffb5e5}{weird}$   $\color{#ffb5e5}{set}$  $\color{#ffb5e5}{of}$  $\color{#ffb5e5}{rules}$  $\color{#ffb5e5}{or}$  $\color{#ffb5e5}{wtv..}$  $\color{#ffb5e5}{(sorry}$  $\color{#ffb5e5}{for}$  $\color{#ffb5e5}{that)}$ $\color{#ffd6f1}{𖹭}$
 
 </p>
 
