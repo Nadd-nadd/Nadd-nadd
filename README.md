@@ -160,7 +160,7 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 <p align="center">
-<img src="https://files.catbox.moe/4yfo6g.png" width="1000" >
+<img src="https://files.catbox.moe/z5ayow.png" width="1000" >
 </p>
 
 
