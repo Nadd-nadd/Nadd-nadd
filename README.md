@@ -7,6 +7,11 @@
 <img src="https://i.imgur.com/INmGUOi.png">
 </p>
 
+<p align="center">
+ $\color{#ff91d9}{⊹₊˚‧︵‿₊}$  $\color{#ffb5e5}{ ୨ᰔ୧  }$  $\color{#ff91d9}{ ₊‿︵‧˚₊⊹}$
+</p>
+
+
  <p align="center">   $\color{#ffb5e5}{Haihoo!}$  $\color{#ffd6f1}{>⩊<}$ 
 </p>
 
