@@ -156,6 +156,10 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Incest}$ $\color{#ffb5e5}{supporters}$
 $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}$
 </p>
 
+<p align="center">
+ $\color{#ff91d9}{૮꒰◞ ˕ ◟ ྀི꒱ა}$
+</p>
+
 
 
 
@@ -165,10 +169,6 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 
-
-<p align="center">
- $\color{#ff91d9}{૮꒰◞ ˕ ◟ ྀི꒱ა}$
-</p>
 
 
 <p align="center">
