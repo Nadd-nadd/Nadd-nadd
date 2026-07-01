@@ -58,9 +58,13 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 </p>
 
 
-<p align="center">
-<img src="https://files.catbox.moe/0g3fpr.gif" width="1000" >
+
+
+ <p align="center">
+<img src="https://files.catbox.moe/h6qkkr.webp" width="1000" >
 </p>
+
+
 
 
 
@@ -103,7 +107,19 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\col
 <p align="center">
  $\color{#ff91d9}{ ⏝ ⏝ ⏝  }$  $\color{#ffb5e5}{ 𓊆୨✦୧𓊇 }$  $\color{#ff91d9}{ ⏝ ⏝ ⏝}$
 </p>
- 
+
+
+
+
+
+<p align="center">
+<img src="https://files.catbox.moe/0g3fpr.gif" width="1000" >
+</p>
+
+
+
+
+
 
 <p align="center">
  $\color{#ff91d9}{⏔⏔⏔ }$  $\color{#ffb5e5}{ ꒰ ᧔ෆ᧓ ꒱ }$  $\color{#ff91d9}{ ⏔⏔⏔}$
@@ -139,6 +155,15 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Incest}$ $\color{#ffb5e5}{supporters}$
 <p align="center">
 $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}$
 </p>
+
+
+
+
+<p align="center">
+<img src="https://files.catbox.moe/xbq9wm.png" width="1000" >
+</p>
+
+
 
 
 <p align="center">
