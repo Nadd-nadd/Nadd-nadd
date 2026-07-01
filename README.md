@@ -22,8 +22,8 @@ $\color{#ffd6f1}{BEFORE}$ $\color{#ffd6f1}{YOU}$ $\color{#ffd6f1}{INTERACT!}$
 $\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{minor!}$ $\color{#ffb5e5}{NSFW}$ $\color{#ffb5e5}{jokes}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{fine}$ $\color{#ffb5e5}{until}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{too}$ $\color{#ffb5e5}{weird}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{(><)}$ $\color{#ffd6f1}{𖹭}$
 
  <p align="center">
-$\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{Sorry}$ 
-$\color{#ffb5e5}{not}$ $\color{#ffb5e5}{sorry.}$ $\color{#ffb5e5}{𖹭}$
+$\color{#ffd6f1}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{I}$ 
+$\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  $\color{#ffb5e5}{easily}$  $\color{#ffb5e5}{if }$   $\color{#ffb5e5}{you}$   $\color{#ffb5e5}{don't}$   $\color{#ffb5e5}{fit}$   $\color{#ffb5e5}{into}$   $\color{#ffb5e5}{my}$   $\color{#ffb5e5}{weird}$   $\color{#ffb5e5}{set}$  $\color{#ffb5e5}{of}$  $\color{#ffb5e5}{rules}$  $\color{#ffb5e5}{or}$  $\color{#ffb5e5}{wtv..}$  $\color{#ffb5e5}{(sorry}$  $\color{#ffb5e5}{for}$  $\color{#ffb5e5}{that)}$ $\color{#ffb5e5}{𖹭}$
 
 </p>
 
@@ -41,7 +41,7 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
 <p align="center">
- $\color{#ff91d9}{⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹}$
+ $\color{#ffb5e5}{⊹}$  $\color{#ff91d9}{ ︶︶︶ }$  $\color{#ffb5e5}{ ୨୧  }$  $\color{#ff91d9}{︶︶︶}$  $\color{#ffb5e5}{⊹}$
 </p>
 
 <p align="center">
@@ -77,7 +77,7 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\col
 </p>
 
 <p align="center">
- $\color{#ff91d9}{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$
+ $\color{#ff91d9}{⏔⏔⏔ }$  $\color{#ffb5e5}{ ꒰ ᧔ෆ᧓ ꒱ }$  $\color{#ff91d9}{ ⏔⏔⏔}$
 </p>
 
 
@@ -118,25 +118,26 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 </p>
 
 
-
+<p align="center">
+ $\color{#ff91d9}{•∘˙⊹. }$ $\color{#ffb5e5}{꒰ঌ ᧔ෆ᧓ ໒꒱ }$ $\color{#ff91d9}{ .⊹˙∘•}$
+</p>
  
-<p align="center">
- $\color{#ff91d9}{｡ﾟ•┈୨♡୧┈• ｡ﾟ}$
-</p>
-
-<p align="center">
-$\color{#ffd6f1}{If}$ $\color{#ffd6f1}{you're}$ $\color{#ffd6f1}{looking}$ $\color{#ffd6f1}{for}$ $\color{#ffd6f1}{more}$ $\color{#ffd6f1}{info,}$ $\color{#ffd6f1}{check}$ $\color{#ffd6f1}{out}$ $\color{#ffd6f1}{my}$ $\color{#ffd6f1}{links!}$
-</p>
 
 
 <p align="center">
-$\color{#ffd6f1}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#ffb5e5}{✦}$ <a href="https://nadnad.straw.page/">Strawpage! (outdated..)</a> $\color{#ffb5e5}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
-$\color{#ffb5e5}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a> $\color{#ffb5e5}{✦}$ <a href="https://guns.lol/nadnadd ">Guns.lol!</a> $\color{#ffd6f1}{ ⋯⋅๑•✦}$
+$\color{#ffb5e5}{If}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{looking}$ $\color{#ffb5e5}{for}$ $\color{#ffb5e5}{more}$ $\color{#ffb5e5}{info,}$ $\color{#ffb5e5}{check}$ $\color{#ffb5e5}{out}$ $\color{#ffb5e5}{my}$ $\color{#ffb5e5}{links!}$
+</p>
+
+
+<p align="center">
+$\color{#ff91d9}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#ffb5e5}{✦}$ <a href="https://nadnad.straw.page/">Strawpage! (outdated..)</a> $\color{#ffb5e5}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
+$\color{#ffb5e5}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a> $\color{#ffb5e5}{✦}$ <a href="https://guns.lol/nadnadd ">Guns.lol!</a> $\color{#ff91d9}{ ⋯⋅๑•✦}$
 </p>
 
 <p align="center">
- $\color{#ff91d9}{•∘˙⊹. ꒰ঌ ᧔ෆ᧓ ໒꒱ .⊹˙∘•}$
+ $\color{#ff91d9}{｡ ..•}$  $\color{#ffb5e5}{┈୨♡୧┈}$  $\color{#ff91d9}{• ..｡}$
 </p>
+
 
 <p align="center">
  $\color{#ff91d9}{THIS}$ $\color{#ff91d9}{IS}$ $\color{#ff91d9}{STILL}$ $\color{#ff91d9}{A}$ $\color{#ff91d9}{HEAVY}$ $\color{#ff91d9}{WIP!!!}$
