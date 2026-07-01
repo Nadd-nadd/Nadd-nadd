@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.imgur.com/INmGUOi.png">
+<img src="https://i.imgur.com/INmGUOi.png" width="500" >
 </p>
 
 
