@@ -144,7 +144,7 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Radqueers}$
 $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Bad}$ $\color{#ffb5e5}{humour}$ $\color{#ffb5e5}{(sorry}$ $\color{#ffb5e5}{ig}$ $\color{#ffb5e5}{><)}$
 </p>
 <p align="center">
-$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Non-sharing yumes}$
+$\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Non-sharing}$ $\color{#ffb5e5}{Unless}$ $\color{#ffb5e5}{we're}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{close}$
 </p>
 <p align="center">
 $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Dry}$ $\color{#ffb5e5}{people}$ $\color{#ffb5e5}{(unless}$ $\color{#ffb5e5}{we're}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{close)}$
@@ -160,7 +160,7 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 <p align="center">
-<img src="https://files.catbox.moe/xbq9wm.png" width="1000" >
+<img src="https://files.catbox.moe/4yfo6g.png" width="1000" >
 </p>
 
 
