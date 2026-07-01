@@ -40,6 +40,9 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
   </p>
 
 
+<p align="center">
+ $\color{#ff91d9}{⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹}$
+</p>
 
 <p align="center">
 $\color{#ffa1de}{FOR}$ $\color{#ffa1de}{PONY}$ $\color{#ffa1de}{TOWN}$
@@ -50,7 +53,7 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I'm}$ $\color{#ff91d9}{okay}$ $\co
 </p>
  
 <p align="center">
-$\color{#ffa1de}{༘୨୧}$ $\color{#ffa3df}{w2i,}$ $\color{#ffa3df}{I}$ $\color{#ffa3df}{take}$ $\color{#ffa3df}{some}$ $\color{#ffa3df}{time}$ $\color{#ffa3df}{to}$ $\color{#ffa3df}{reply}$ $\color{#ffa3df}{sometimes}$ $\color{#ffa3df}{so}$ $\color{#ffa3df}{plz}$ $\color{#ffa3df}{be}$ $\color{#ffa3df}{patient!!}$ $\color{#ffa1de}{༘୨୧}$
+$\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{w2i,}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{take}$ $\color{#ff91d9}{some}$ $\color{#ff91d9}{time}$ $\color{#ff91d9}{to}$ $\color{#ff91d9}{reply}$ $\color{#ff91d9}{sometimes}$ $\color{#ff91d9}{so}$ $\color{#ff91d9}{plz}$ $\color{#ff91d9}{be}$ $\color{#ff91d9}{patient!!}$ $\color{#ffa1de}{༘୨୧}$
  </p>
  
 <p align="center">
@@ -73,6 +76,9 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{mostly}$ $\co
 $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\color{#ff91d9}{also}$ $\color{#ff91d9}{not}$ $\color{#ff91d9}{always}$ $\color{#ff91d9}{be}$ $\color{#ff91d9}{up}$ $\color{#ff91d9}{for}$ $\color{#ff91d9}{a}$ $\color{#ff91d9}{chat..}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{put}$ $\color{#ff91d9}{dnd}$ $\color{#ff91d9}{when}$ $\color{#ff91d9}{that}$ $\color{#ff91d9}{happens}$ $\color{#ffa1de}{༘୨୧}$
 </p>
 
+<p align="center">
+ $\color{#ff91d9}{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$
+</p>
 
 
 <p align="center">
@@ -108,6 +114,17 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 <p align="center">
+ $\color{#ff91d9}{૮꒰◞ ˕ ◟ ྀི꒱ა}$
+</p>
+
+
+
+ 
+<p align="center">
+ $\color{#ff91d9}{｡ﾟ•┈୨♡୧┈• ｡ﾟ}$
+</p>
+
+<p align="center">
 $\color{#ffd6f1}{If}$ $\color{#ffd6f1}{you're}$ $\color{#ffd6f1}{looking}$ $\color{#ffd6f1}{for}$ $\color{#ffd6f1}{more}$ $\color{#ffd6f1}{info,}$ $\color{#ffd6f1}{check}$ $\color{#ffd6f1}{out}$ $\color{#ffd6f1}{my}$ $\color{#ffd6f1}{links!}$
 </p>
 
@@ -118,6 +135,10 @@ $\color{#ffb5e5}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a>
 </p>
 
 <p align="center">
- $\color{#ffb5e5}{THIS}$ $\color{#ffb5e5}{IS}$ $\color{#ffb5e5}{STILL}$ $\color{#ffb5e5}{A}$ $\color{#ffb5e5}{HEAVY}$ $\color{#ffb5e5}{WIP!!!}$
-  $\color{#ffd6f1}{Don't}$ $\color{#ffd6f1}{expect}$ $\color{#ffd6f1}{much..}$
+ $\color{#ff91d9}{•∘˙⊹. ꒰ঌ ᧔ෆ᧓ ໒꒱ .⊹˙∘•}$
+</p>
+
+<p align="center">
+ $\color{#ff91d9}{THIS}$ $\color{#ff91d9}{IS}$ $\color{#ff91d9}{STILL}$ $\color{#ff91d9}{A}$ $\color{#ff91d9}{HEAVY}$ $\color{#ff91d9}{WIP!!!}$
+  $\color{#ffb5e5}{Don't}$ $\color{#ffb5e5}{expect}$ $\color{#ffb5e5}{much..}$
 </p>
