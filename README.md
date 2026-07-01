@@ -7,6 +7,9 @@
 <img src="https://i.imgur.com/INmGUOi.png">
 </p>
 
+
+
+
 <p align="center">
  $\color{#ff91d9}{⊹₊˚‧︵‿₊}$  $\color{#ffb5e5}{ ୨ᰔ୧  }$  $\color{#ff91d9}{ ₊‿︵‧˚₊⊹}$
 </p>
@@ -50,6 +53,10 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 </p>
 
 <p align="center">
+$\color{#ff91d9}{˚₊‧˚}$ $\color{#ffb5e5}{꒰𓊆⑅𓊇꒱}$ $\color{#ff91d9}{ ‧₊˚}$
+</p>
+
+<p align="center">
 $\color{#ffa1de}{FOR}$ $\color{#ffa1de}{PONY}$ $\color{#ffa1de}{TOWN}$
 </p>
  
@@ -82,9 +89,13 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\col
 </p>
 
 <p align="center">
+ $\color{#ff91d9}{ ⏝ ⏝ ⏝  }$  $\color{#ffb5e5}{ 𓊆୨✦୧𓊇 }$  $\color{#ff91d9}{ ⏝ ⏝ ⏝}$
+</p>
+ 
+
+<p align="center">
  $\color{#ff91d9}{⏔⏔⏔ }$  $\color{#ffb5e5}{ ꒰ ᧔ෆ᧓ ꒱ }$  $\color{#ff91d9}{ ⏔⏔⏔}$
 </p>
-
 
 <p align="center">
 $\color{#ffd6f1}{DNI!}$
