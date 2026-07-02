@@ -41,9 +41,14 @@ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  
 </p>
 
 <p align="center">
+$\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{autism}$ $\color{#ffb5e5}{so}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{act}$ 
+  $\color{#ffb5e5}{stupid}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{upset}$ $\color{#ffb5e5}{over}$ $\color{#ffb5e5}{minor}$ $\color{#ffb5e5}{things}$ $\color{#ffd6f1}{𖹭}$
+</p>
+
+
+<p align="center">
 $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{tend}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{quiet}$ $\color{#ffb5e5}{-}$ 
   $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{more}$ $\color{#ffb5e5}{open}$ $\color{#ffb5e5}{if}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{topic}$ $\color{#ffb5e5}{interests}$ $\color{#ffb5e5}{me!}$ $\color{#ffd6f1}{𖹭}$
-
 </p>
 
 <p align="center">
