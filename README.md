@@ -41,7 +41,7 @@ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  
 </p>
 
 <p align="center">
-$\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{autism}$ $\color{#ffb5e5}{so}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{act}$ 
+$\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{autism}$ $\color{#ffb5e5}{(I}$ $\color{#ffb5e5}{dont}$ $\color{#ffb5e5}{believe}$ $\color{#ffb5e5}{in}$ $\color{#ffb5e5}{having}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{tho..)}$ $\color{#ffb5e5}{so}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{act}$ 
   $\color{#ffb5e5}{stupid}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{upset}$ $\color{#ffb5e5}{over}$ $\color{#ffb5e5}{minor}$ $\color{#ffb5e5}{things}$ $\color{#ffd6f1}{𖹭}$
 </p>
 
