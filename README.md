@@ -188,7 +188,7 @@ $\color{#ffb5e5}{If}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{looking}$ $\col
 
 
 <p align="center">
-$\color{#ff91d9}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#ffb5e5}{✦}$ <a href="https://nadnad.straw.page/">Strawpage! (outdated..)</a> $\color{#ffb5e5}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
+$\color{#ff91d9}{✦•๑⋅⋯}$ <a href="https://nadnad.atabook.org">Atabook!</a> $\color{#ffb5e5}{✦}$ <a href="https://nadnad2.straw.page">Strawpage! (heavy wip..)</a> $\color{#ffb5e5}{✦}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc!</a>
 $\color{#ffb5e5}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a> $\color{#ffb5e5}{✦}$ <a href="https://guns.lol/nadnadd ">Guns.lol!</a> $\color{#ff91d9}{ ⋯⋅๑•✦}$
 </p>
 
