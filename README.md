@@ -2,11 +2,11 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/gts951.png" width="1000" >
+<img src="https://files.catbox.moe/gts951.png" alt=photololl width="1000" >
 </p>
 
 <p align="center">
-<img src="https://i.imgur.com/INmGUOi.png" width="500" >
+<img src="https://i.imgur.com/INmGUOi.png" alt=anotherphoto width="500" >
 </p>
 
 
@@ -70,7 +70,7 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
  <p align="center">
-<img src="https://files.catbox.moe/h6qkkr.webp" width="1000" >
+<img src="https://files.catbox.moe/h6qkkr.webp" alt=ANOTHERPHOTObutitsaheaderthistime width="1000" >
 </p>
 
 
@@ -122,7 +122,7 @@ $\color{#ffa1de}{༘୨୧}$ $\color{#ff91d9}{I}$ $\color{#ff91d9}{might}$ $\col
 
 
 <p align="center">
-<img src="https://files.catbox.moe/0g3fpr.gif" width="1000" >
+<img src="https://files.catbox.moe/0g3fpr.gif" alt=yetanotherheader width="1000" >
 </p>
 
 
@@ -173,7 +173,7 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 <p align="center">
-<img src="https://files.catbox.moe/z5ayow.png" width="1000" >
+<img src="https://files.catbox.moe/z5ayow.png" alt=ANOTHERHEADERWOHOO width="1000" >
 </p>
 
 
