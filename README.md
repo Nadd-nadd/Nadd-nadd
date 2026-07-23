@@ -1,7 +1,4 @@
-<p align="center">
 
-<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=ffb5e5" alt="Profile view counter on GitHub">
-</p>
 
 
 <p align="center">
@@ -14,8 +11,13 @@
 
 
 <P align="center">
-<a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffa6cb/imood.gif" width="200" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
+<a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffbad7/imood.gif" width="100" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
 </P>
+
+<p align="center">
+
+<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=ffb5e5" alt="Profile view counter on GitHub">
+</p>
 
 <p align="center">
  $\color{#ff91d9}{⊹₊˚‧︵‿₊}$  $\color{#ffb5e5}{ ୨ᰔ୧  }$  $\color{#ff91d9}{ ₊‿︵‧˚₊⊹}$
