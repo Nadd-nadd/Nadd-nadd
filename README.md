@@ -11,7 +11,7 @@
 
 
 <P align="center">
-<a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffbad7/imood.gif" width="100" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
+<a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffbae3/imood.gif" width="100" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
 </P>
 
 <p align="center">
