@@ -67,7 +67,9 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 </p>
 
 
-
+<p align="center"> 
+<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png"></a>
+</p>
 
  <p align="center">
 <img src="https://files.catbox.moe/h6qkkr.webp" alt=ANOTHERPHOTObutitsaheaderthistime width="1000" >
@@ -173,7 +175,9 @@ $\color{#ffd6f1}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 
 
 <p align="center">
-<img src="https://files.catbox.moe/z5ayow.png" alt=ANOTHERHEADERWOHOO width="1000" >
+ 
+ <img src="https://files.catbox.moe/z5ayow.png" alt=ANOTHERHEADERWOHOO width="1000" >
+ 
 </p>
 
 
