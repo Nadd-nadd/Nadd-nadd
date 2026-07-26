@@ -68,7 +68,8 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
 <p align="center"> 
-<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png"></a>
+<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png"></a> 
+ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{u}$ $\color{#ffb5e5}{Katsu}$ $\color{#ffb5e5}{sm}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{honored}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{this}$ $\color{#ffb5e5}{title}$ $\color{#ffb5e5}{♡}$
 </p>
 
  <p align="center">
