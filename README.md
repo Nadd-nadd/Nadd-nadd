@@ -68,9 +68,15 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
 <p align="center"> 
-<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png" width="300"></a> <a href="https://github.com/pt-nominations"><img src="https://files.catbox.moe/r6u1t5.png" width="300"></a> <a href="https://github.com/pt-of-awesomeness"><img src="https://files.catbox.moe/ats8fc.png" width="300"></a> 
+<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png" width="300"></a> <a href="https://github.com/pt-nominations"><img src="https://files.catbox.moe/r6u1t5.png" width="300"></a> 
+</p>
 
- <a href="https://github.com/fans-town"><img src="https://files.catbox.moe/t7isx5.png" width="300"></a>  <a href="https://github.com/pt-fashion"><img src="https://files.catbox.moe/kv9pf0.png" width="300"></a> <a href="https://github.com/pt-hall-of-media"><img src="https://files.catbox.moe/qxairl.png" width="300"></a>  
+ <p align=center>
+ <a href="https://github.com/pt-of-awesomeness"><img src="https://files.catbox.moe/ats8fc.png" width="300"></a>  <a href="https://github.com/fans-town"><img src="https://files.catbox.moe/t7isx5.png" width="300"></a>  
+ </p>
+ 
+ <p align=center>
+ <a href="https://github.com/pt-fashion"><img src="https://files.catbox.moe/kv9pf0.png" width="300"></a> <a href="https://github.com/pt-hall-of-media"><img src="https://files.catbox.moe/qxairl.png" width="300"></a>  
 </p>
 
 <p align=center>
