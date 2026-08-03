@@ -68,9 +68,23 @@ $\color{#ffd6f1}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 
 
 <p align="center"> 
-<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png" width="400"></a> 
- $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{u}$ $\color{#ffb5e5}{Katsu}$ $\color{#ffb5e5}{sm}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{honored}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{this}$ $\color{#ffb5e5}{title}$ $\color{#ffb5e5}{♡}$
+<a href="https://github.com/pt-walk-of-fame"><img src="https://i.imgur.com/boLWtjr.png" width="300"></a> <a href="https://github.com/pt-nominations"><img src="https://files.catbox.moe/r6u1t5.png" width="300"></a> <a href="https://github.com/pt-of-awesomeness"><img src="https://files.catbox.moe/ats8fc.png" width="300"></a> 
+
+ <a href="https://github.com/fans-town"><img src="https://files.catbox.moe/t7isx5.png" width="300"></a>  <a href="https://github.com/pt-fashion"><img src="https://files.catbox.moe/kv9pf0.png" width="300"></a> <a href="https://github.com/pt-hall-of-media"><img src="https://files.catbox.moe/qxairl.png" width="300"></a>  
 </p>
+
+<p align=center>
+<a href="https://github.com/pt-medals"><img src="https://files.catbox.moe/zvmhc6.png" width="300"></a>
+</p>
+
+
+ <p align=center>
+  <h1> $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{AM}$ $\color{#ffb5e5}{THE}$ $\color{#ffb5e5}{PT'S}$ $\color{#ffb5e5}{SIGIL}$ $\color{#ffb5e5}{AND}$ $\color{#ffb5e5}{KATSUKI!!!}$ $\color{#ffb5e5}{♡}$ $\color{#ffb5e5}{⤴}$ </h1>
+ </p>
+ 
+ <p align=center>
+  $\color{#ffb5e5}{(Also}$ $\color{#ffb5e5}{nominated}$ $\color{#ffb5e5}{in}$ $\color{#ffb5e5}{prettiest}$ $\color{#ffb5e5}{ponies}$ $\color{#ffb5e5}{on}$ <a href="https://github.com/pt-nominations">pt nominations</a> $\color{#ffb5e5}{!)}$
+ </p>
 
  <p align="center">
 <img src="https://files.catbox.moe/h6qkkr.webp" alt=ANOTHERPHOTObutitsaheaderthistime width="1000" >
