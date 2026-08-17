@@ -170,7 +170,7 @@ $\color{#99007d}{✦}$ $\color{#ffb5e5}{Necrophilia}$ $\color{#ffb5e5}{supporter
 
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Non-con/rape}$ $\color{#ffb5e5}{kink}$ $\color{#ffb5e5}{supporters}$
 
-<img src="https://files.catbox.moe/jmnixp.png" width=500>
+<img src="https://files.catbox.moe/jmnixp.png" width=300>
 
 <br clear="left" />
 
