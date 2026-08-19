@@ -27,8 +27,7 @@
 </p>
 
 <p align="center">
- $\color{#ffd1eb}{⇣ }$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad}$ $\color{#ffb5e5}{..}$ $\color{#ffb5e5}{Here's}$ $\color{#ffb5e5}{some}$ $\color{#ffb5e5}{basic}$ $\color{#ffb5e5}{info}$ 
-$\color{#ffb5e5}{abt}$ $\color{#ffb5e5}{me!}$ $\color{#ffd1eb}{⇣ }$
+ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{tritype/trifix 945}$ $\color{#ffb5e5}{ok..}$ 
 </p>
 
 <p align="center">
