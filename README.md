@@ -27,7 +27,7 @@
 </p>
 
 <p align="center">
- $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{tritype/trifix 945}$ $\color{#ffb5e5}{ok..}$ 
+ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{tritype/trifix}$ $\color{#ffb5e5}{945}$  $\color{#ffb5e5}{ok..}$ 
 </p>
 
 <p align="center">
