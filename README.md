@@ -34,7 +34,7 @@
 $\color{#ffd1eb}{BEFORE}$ $\color{#ffd1eb}{YOU}$ $\color{#ffd1eb}{INTERACT!}$ 
 </p>
 <p align="center">
-$\color{#99007d}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{minor!}$ $\color{#ffb5e5}{NSFW}$ $\color{#ffb5e5}{jokes}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{fine}$ $\color{#ffb5e5}{until}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{too}$ $\color{#ffb5e5}{weird}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{(><)}$ $\color{#99007d}{𖹭}$
+$\color{#99007d}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{minor!}$ $\color{#ffb5e5}{NSFW}$ $\color{#ffb5e5}{jokes}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{fine}$ $\color{#ffb5e5}{until}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{taking}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{too}$ $\color{#ffb5e5}{far}$ $\color{#ffb5e5}{(><)}$ $\color{#99007d}{𖹭}$
 
  <p align="center">
 $\color{#99007d}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{I}$ 
