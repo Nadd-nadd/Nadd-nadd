@@ -179,11 +179,6 @@ $\color{#99007d}{✦}$ $\color{#ffb5e5}{Non-con/rape}$ $\color{#ffb5e5}{kink}$ $
 
 
 
-<p align="center">
- $\color{#99007d}{૮꒰◞ ˕ ◟ ྀི꒱ა}$
-</p>
-
-
 
 
 <p align="center">
