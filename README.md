@@ -73,13 +73,17 @@ $\color{#99007d}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ff
 </p>
 
 <p align=center>
-$\color{#ffb5e5}{Also}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{pt's}$ $\color{#ffb5e5}{Katsuki}$ $\color{#ffb5e5}{and}$ $\color{#ffb5e5}{Neito}$ $\color{#ffb5e5}{yume-->}$ <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> $\color{#ffb5e5}{𖹭}$
+$\color{#ffb5e5}{Also}$ $\color{#ffb5e5}{pt's}$ $\color{#ffb5e5}{Katsuki}$ $\color{#ffb5e5}{and}$ $\color{#ffb5e5}{Neito}$ $\color{#ffb5e5}{yume-->}$ <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> $\color{#ffb5e5}{𖹭}$
 </p>
 
 <p align=center>
- $\color{#99007d}{⊹}$ $\color{#ffd1eb}{TYSM}$ $\color{#ffd1eb}{FOR}$ $\color{#ffd1eb}{NOMINATING}$ $\color{#ffd1eb}{ME!}$ $\color{#99007d}{⊹}$
+$\color{#ffb5e5}{✦}$ <a href="https://github.com/pt-friendships">pt-friendships</a> $\color{#ffb5e5}{ME}$ $\color{#ffb5e5}{AND}$ <a href="https://github.com/Uictim">Uictim</a> $\color{#ffb5e5}{!!!}$ $\color{#ffb5e5}{𖹭}$ $\color{#ffb5e5}{BLOWINGFUSEDUO}$ $\color{#ffb5e5}{𖹭}$
 </p>
- 
+
+<p align=center>
+  $\color{#99007d}{⊹}$ $\color{#ffd1eb}{TYSM}$ $\color{#ffd1eb}{FOR}$ $\color{#ffd1eb}{NOMINATING}$ $\color{#ffd1eb}{ME!}$ $\color{#99007d}{⊹}$
+</p
+
  
 
  <p align="center">
