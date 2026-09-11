@@ -1,5 +1,5 @@
 
-
+ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my other sites might get updated too heh
 
 <p align="center">
 <img src="https://files.catbox.moe/xyktip.png" width="1000" >
@@ -22,13 +22,78 @@
  $\color{#99007d}{⊹₊˚‧︵‿₊}$  $\color{#ffb5e5}{ ୨ᰔ୧  }$  $\color{#99007d}{ ₊‿︵‧˚₊⊹}$
 </p>
 
-
- <p align="center">   $\color{#99007d}{Haihoo!}$  $\color{#ffd6f1}{>⩊<}$ 
+<p align="center">   $\color{#99007d}{Haihoo!}$  $\color{#ffd6f1}{>⩊<}$ 
 </p>
 
-<p align="center">
- $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{tritype/trifix}$ $\color{#ffb5e5}{945}$  $\color{#ffb5e5}{ok..}$ 
-</p>
+  
+<div align="center">
+<details>
+<summary>   $\color{#ffb5e5}{Info}$  $\color{#ffb5e5}{about}$  $\color{#ffb5e5}{me!}$</summary>
+
+$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{You}$ $\color{#ffb5e5}{can}$ $\color{#ffb5e5}{call}$ $\color{#ffb5e5}{me}$ $\color{#ffb5e5}{Nad}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{Narrator}$ $\color{#ffb5e5}{tho.}$ $\color{#ffb5e5}{Nicknames}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{also}$ $\color{#ffb5e5}{fine!}$ $\color{#ffb5e5}{Just}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{make}$ $\color{#ffb5e5}{sure,}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{can}$ $\color{#ffb5e5}{check}$ $\color{#ffb5e5}{my}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc</a> $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{an}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{945}$ $\color{#ffb5e5}{tritype/trifix!}$ $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{sharing}$ $\color{#ffb5e5}{stuff..}$ $\color{#ffb5e5}{Talking}$ $\color{#ffb5e5}{about}$ $\color{#ffb5e5}{something}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{like}$ $\color{#ffb5e5}{is}$ $\color{#ffb5e5}{my}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{language!}$ $\color{#ffd1eb}{𖹭}$
+
+</details>
+</div>
+
+<div align="center">
+<details>
+<summary>   $\color{#ffd1eb}{Fandoms!}$</summary>
+
+$\color{#99007d}{ᨳଓ}$ $\color{#ffb5e5}{Fight}$ $\color{#ffb5e5}{Club}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{MHA}$  $\color{#99007d}{𖹭}$
+
+$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{AvA/AvMC}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Slime}$  $\color{#ffb5e5}{Rancher}$  $\color{#99007d}{𖹭}$
+
+$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{NSO}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{DBH}$  $\color{#99007d}{𖹭}$
+
+$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{ENA:}$  $\color{#ffb5e5}{Dream}$  $\color{#ffb5e5}{BBQ}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Date}$  $\color{#ffb5e5}{Everything}$  $\color{#99007d}{𖹭}$
+
+$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{Nullscape}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Moral}$  $\color{#ffb5e5}{Orel}$  $\color{#99007d}{𖹭}$
+
+$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{Suicide}$  $\color{#ffb5e5}{Room}$  $\color{#99007d}{ᨳଓ}$
+
+$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{DOOM}$  $\color{#ffb5e5}{Eternal}$  $\color{#99007d}{𖹭}$
+
+$\color{#ffb5e5}{+}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{bunch}$ $\color{#ffb5e5}{more!}$ $\color{#ffb5e5}{Just}$  $\color{#ffb5e5}{ask}$ $\color{#ffb5e5}{me}$ $\color{#ffb5e5}{and}$ $\color{#ffb5e5}{I'll}$ $\color{#ffb5e5}{give}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{the}$ $\color{#ffb5e5}{whole}$ $\color{#ffb5e5}{list}$  $\color{#ffb5e5}{><}$  
+</details>
+</div>
+
+<div align="center">
+<details>
+<summary>   $\color{#ffb5e5}{Kins!}$</summary>
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Narrator/Jack}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{Fight}$  $\color{#ffb5e5}{Club}$  $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Blue}$ $\color{#ffd1eb}{-}$  $\color{#ffb5e5}{AvA/AvMC}$  $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Purple}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{AvA/AvMC}$ $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Red}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{AvA/AvMC}$ $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Mafuyu}$  $\color{#ffb5e5}{Asahina}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{PJSK}$  $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{BoJack}$  $\color{#ffb5e5}{Horseman}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{BoJack}$  $\color{#ffb5e5}{Horseman}$ $\color{#ffd1eb}{𖹭}$
+
+$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Simon}$  $\color{#ffb5e5}{Henriksson}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{COF}$ $\color{#ffd1eb}{𖹭}$
+
+
+</details>
+</div>
+
+
 
 <p align="center">
 $\color{#ffd1eb}{BEFORE}$ $\color{#ffd1eb}{YOU}$ $\color{#ffd1eb}{INTERACT!}$ 
@@ -43,8 +108,8 @@ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  
 </p>
 
 <p align="center">
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{have}$ $\color{#ffb5e5}{autism}$  $\color{#ffb5e5}{so}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{act}$ 
-  $\color{#ffb5e5}{stupid}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{upset}$ $\color{#ffb5e5}{over}$ $\color{#ffb5e5}{minor}$ $\color{#ffb5e5}{things}$ $\color{#99007d}{𖹭}$
+$\color{#99007d}{𖹭}$  
+$\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{diagnosed}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{autism.}$ $\color{#ffb5e5}{Pls}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{patient,}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ffb5e5}{take}$ $\color{#ffb5e5}{some}$  $\color{#ffb5e5}{time}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{process}$ $\color{#ffb5e5}{information!}$ $\color{#99007d}{𖹭}$
 </p>
 
 
