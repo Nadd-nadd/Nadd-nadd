@@ -14,149 +14,142 @@ ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my o
 
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=99007d" alt="Profile view counter on GitHub"> $\color{#ffd6f1}{>,<}$
+<img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=99007d" alt="Profile view counter on GitHub"> $$\color{#ffffff}(>,\color{#ffe6f4}<)$$
  <a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffbae3/imood.gif" width="100" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
 </p>
 
 <p align="center">
- $\color{#99007d}{⊹₊˚‧︵‿₊}$  $\color{#ffb5e5}{ ୨ᰔ୧  }$  $\color{#99007d}{ ₊‿︵‧˚₊⊹}$
+ $$\color{#ff9cd4}⋆..\color{#ffb0dd}˚‧\color{#ffd1eb}°˚°\color{#ffe6f4}₊\ \color{#ffffff}୨୧\ \color{#ffe6f4}₊\ \color{#ffd1eb}°˚°\color{#ffb0dd}‧˚\color{#ff9cd4}..⋆$$
 </p>
 
-<p align="center">   $\color{#99007d}{Haihoo!}$  $\color{#ffd6f1}{>⩊<}$ 
+ 
+<p align="center"> $$\color{#ffffff}Ha\color{#ffe6fb}ih\color{#ffd4f8}hoo!\ \color{#ed8cdd}(˶>⩊\color{#d457bf}<˶)/\ \color{#c230aa}Wel\color{#9e0d88}co\color{#c230aa}me\ \color{#d457bf}to\ \color{#ed8cdd}my\ \color{#ffd4f8}Git\color{#ffe6fb}hub!$$
 </p>
 
   
 <div align="center">
 <details>
-<summary>   $\color{#ffb5e5}{Info}$  $\color{#ffb5e5}{about}$  $\color{#ffb5e5}{me!}$</summary>
+<summary>$$\color{#ffffff}Inf\color{#ffe6fb}o\ \color{#ffd4f8}abo\color{#ed8cdd}ut$$ $$\color{#d457bf}me!$$</summary>
 
-$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{Nadnad!}$ $\color{#ffb5e5}{You}$ $\color{#ffb5e5}{can}$ $\color{#ffb5e5}{call}$ $\color{#ffb5e5}{me}$ $\color{#ffb5e5}{Nad}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{Narrator}$ $\color{#ffb5e5}{tho.}$ $\color{#ffb5e5}{Nicknames}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{also}$ $\color{#ffb5e5}{fine!}$ $\color{#ffb5e5}{Just}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{make}$ $\color{#ffb5e5}{sure,}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{can}$ $\color{#ffb5e5}{check}$ $\color{#ffb5e5}{my}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc</a> $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}I'm\ \color{#ffe6f4}Nad\color{#ffd1eb}nad!\ \color{#ffb0dd}You\ \color{#ff9cd4}can\ \color{#ffb0dd}call\ \color{#ffd1eb}me\ \color{#ffe6f4}Nad\ \color{#ffffff}or\ \color{#ffe6f4}Nar\color{#ffd1eb}rat\color{#ffb0dd}or\ \color{#ff9cd4}tho.\ \color{#ffb0dd}Ni\color{#ffd1eb}ckn\color{#ffe6f4}ames\ \color{#ffffff}are\ \color{#ffe6f4}also\ \color{#ffd1eb}ok\ \color{#ffb0dd}un\color{#ff9cd4}less\ \color{#ffb0dd}I\ \color{#ffd1eb}fi\color{#ffe6f4}nd\ \color{#ffd1eb}them\ \color{#ffb0dd}of\color{#ff9cd4}fens\color{#ffb0dd}ive.\$$ $$\color{#ffd1eb}Ju\color{#ffffff}st\ \color{#ffffff}to\ \color{#ffe6f4}ma\color{#ffd1eb}ke\ \color{#ffb0dd}sure,\ \color{#ffb0dd}you\ \color{#ffb0dd}can\ \color{#ffb0dd}che\color{#ffb0dd}ck\ \color{#ffb0dd}my\$$ <a href="https://pronouns.cc/@Nadnad">Prns.cc</a> $\color{#ffb0dd}!$
 
-$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{an}$ $\color{#ffb5e5}{INTP-A}$ $\color{#ffb5e5}{sp9}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{945}$ $\color{#ffb5e5}{tritype/trifix!}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffffff}I'm\ \color{#ffe6f4}an\ \color{#ffd1eb}INTP-A,\ \color{#ffb0dd}sp9\ \color{#ff9cd4}wi\color{#ffb0dd}th\ \color{#ffd1eb}945\ \color{#ffe6f4}tri\color{#ffffff}type\ \color{#ffe6f4}-\color{#ffd1eb}trif\color{#ffb0dd}ix!\ \color{#ffb0dd}𖹭\$$
 
-$\color{#ffd1eb}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{sharing}$ $\color{#ffb5e5}{stuff..}$ $\color{#ffb5e5}{Talking}$ $\color{#ffb5e5}{about}$ $\color{#ffb5e5}{something}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{like}$ $\color{#ffb5e5}{is}$ $\color{#ffb5e5}{my}$ $\color{#ffb5e5}{love}$ $\color{#ffb5e5}{language!}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffffff}I\ \color{#ffe6f4}love\ \color{#ffd1eb}sha\color{#ffb0dd}ri\color{#ff9cd4}ng\ \color{#ffb0dd}stu\color{#ffd1eb}ff..\ \color{#ffe6f4}Tal\color{#ffffff}ki\color{#ffe6f4}ng\ \color{#ffd1eb}ab\color{#ffb0dd}out\ \color{#ff9cd4}some\color{#ffb0dd}thi\color{#ffd1eb}ng\ \color{#ffe6f4}I\ \color{#ffffff}li\color{#ffe6f4}ke\ \color{#ffd1eb}is\ \color{#ffb0dd}my\ \color{#ff9cd4}love\ \color{#ffb0dd}lan\color{#ffd1eb}gu\color{#ffffff}age!\ \color{#ffffff}𖹭$$
+
 
 </details>
 </div>
 
 <div align="center">
 <details>
-<summary>   $\color{#ffd1eb}{Fandoms!}$</summary>
+<summary>   $$\color{#ffffff}Fan\color{#ffe6f4}do\color{#ffd1eb}ms!$$</summary>
 
-$\color{#99007d}{ᨳଓ}$ $\color{#ffb5e5}{Fight}$ $\color{#ffb5e5}{Club}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}ᨳଓ\ \color{#ffffff}Fi\color{#ffe6fb}ght\ \color{#ffd4f8}Cl\color{#ed8cdd}ub\  \color{#d457bf}ᨳଓ$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{MHA}$  $\color{#99007d}{𖹭}$
+$$\color{#ffd4f8}𖹭\  \color{#ffd4f8}M\color{#ed8cdd}HA\ \color{#d457bf}𖹭$$
 
-$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{AvA/AvMC}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}ᨳଓ\  \color{#ffe6fb}EN\color{#ffd4f8}A:\ \color{#ed8cdd}Dr\color{#d457bf}ea\color{#c230aa}m\ \color{#9e0d88}BB\color{#c230aa}Q\ \color{#d457bf}ᨳଓ$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Slime}$  $\color{#ffb5e5}{Rancher}$  $\color{#99007d}{𖹭}$
+$$\color{#ffffff}ᨳଓ\  \color{#ffe6fb}Sli\color{#ffd4f8}me\ \color{#ed8cdd}Ran\color{#d457bf}cher\ \color{#c230aa}ᨳଓ$$
 
-$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{NSO}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}ᨳଓ\  \color{#ffe6fb}Null\color{#ffd4f8}scape\ \color{#ed8cdd}ᨳଓ$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{DBH}$  $\color{#99007d}{𖹭}$
+$$\color{#ffffff}𖹭\  \color{#ffe6fb}D\color{#ffd4f8}BH\ \color{#ed8cdd}𖹭$$
 
-$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{ENA:}$  $\color{#ffb5e5}{Dream}$  $\color{#ffb5e5}{BBQ}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}𖹭\  \color{#ffe6fb}Av\color{#ffd4f8}A\ \color{#ffd4f8}+\ \color{#ed8cdd}Av\color{#d457bf}MC\ \color{#c230aa}𖹭$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Date}$  $\color{#ffb5e5}{Everything}$  $\color{#99007d}{𖹭}$
+$$\color{#ffffff}𖹭\  \color{#ffe6fb}Da\color{#ffd4f8}te\ \color{#ed8cdd}Ev\color{#d457bf}ery\color{#c230aa}thi\color{#9e0d88}ng\ \color{#c230aa}𖹭$$
 
-$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{Nullscape}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}𖹭\  \color{#ffe6fb}N\color{#ffd4f8}SO\ \color{#ed8cdd}𖹭$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{Moral}$  $\color{#ffb5e5}{Orel}$  $\color{#99007d}{𖹭}$
+$$\color{#ffffff}ᨳଓ\  \color{#ffe6fb}DO\color{#ffd4f8}OM\ \color{#ed8cdd}Eter\color{#d457bf}nal\ \color{#c230aa}ᨳଓ$$
 
-$\color{#99007d}{ᨳଓ}$  $\color{#ffb5e5}{Suicide}$  $\color{#ffb5e5}{Room}$  $\color{#99007d}{ᨳଓ}$
+$$\color{#ffffff}𖹭\ \color{#ffe6fb}Su\color{#ffd4f8}ici\color{#ed8cdd}de\ \color{#d457bf}Ro\color{#c230aa}om\ \color{#9e0d88}𖹭$$
 
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{DOOM}$  $\color{#ffb5e5}{Eternal}$  $\color{#99007d}{𖹭}$
+$$\color{#ffffff}+\ \color{#ffe6fb}a\ \color{#ffd4f8}bu\color{#ed8cdd}nch\ \color{#d457bf}mo\color{#c230aa}re\color{#9e0d88}!$$
 
-$\color{#ffb5e5}{+}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{bunch}$ $\color{#ffb5e5}{more!}$ $\color{#ffb5e5}{Just}$  $\color{#ffb5e5}{ask}$ $\color{#ffb5e5}{me}$ $\color{#ffb5e5}{and}$ $\color{#ffb5e5}{I'll}$ $\color{#ffb5e5}{give}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{the}$ $\color{#ffb5e5}{whole}$ $\color{#ffb5e5}{list}$  $\color{#ffb5e5}{><}$  
 </details>
 </div>
 
 <div align="center">
 <details>
-<summary>   $\color{#ffb5e5}{Kins!}$</summary>
+<summary>  $$\color{#ffe6fb}Ki\color{#ffd4f8}ns\color{#ed8cdd}!$$</summary>
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Narrator/Jack}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{Fight}$  $\color{#ffb5e5}{Club}$  $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Nar\color{#ffd1eb}rat\color{#ffb0dd}or\ \color{#ff9cd4}-\ \color{#ffb0dd}Fi\color{#ffd1eb}ght\ \color{#ffe6f4}Cl\color{#ffffff}ub\ \color{#ffe6f4}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Blue}$ $\color{#ffd1eb}{-}$  $\color{#ffb5e5}{AvA/AvMC}$  $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Bl\color{#ffd1eb}ue\ \color{#ffb0dd}-\ \color{#ff9cd4}Av\color{#ffb0dd}A\ \color{#ffd1eb}+\ \color{#ffe6f4}Av\color{#ffffff}MC\ \color{#ffe6f4}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Purple}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{AvA/AvMC}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6fb}Pur\color{#ffd1eb}ple\ \color{#ffb0dd}-\ \color{#ff9cd4}Av\color{#ffb0dd}A\ \color{#ffd1eb}+\ \color{#ffe6f4}Av\color{#ffffff}MC\ \color{#ffe6f4}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Red}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{AvA/AvMC}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Re\color{#ffd1eb}d\ \color{#ffb0dd}-\ \color{#ff9cd4}Av\color{#ffb0dd}A\ \color{#ffd1eb}+\ \color{#ffe6f4}Av\color{#ffffff}MC\ \color{#ffe6f4}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Mafuyu}$  $\color{#ffb5e5}{Asahina}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{PJSK}$  $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Ma\color{#ffd1eb}fu\color{#ffb0dd}yu\ \color{#ff9cd4}As\color{#ffb0dd}ahi\color{#ffd1eb}na\ \color{#ffe6f4}-\ \color{#ffffff}PJ\color{#ffe6f4}SK\ \color{#ffd1eb}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{BoJack}$  $\color{#ffb5e5}{Horseman}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{BoJack}$  $\color{#ffb5e5}{Horseman}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Bo\color{#ffd1eb}Ja\color{#ffb0dd}ck\ \color{#ff9cd4}Hor\color{#ffb0dd}se\color{#ffd1eb}man\ \color{#ffe6f4}-\ \color{#ffffff}Bo\color{#ffe6f4}Ja\color{#ffd1eb}ck\ \color{#ffb0dd}Hors\color{#ff9cd4}em\color{#ffb0dd}man\ \color{#ffd1eb}𖹭$$
 
-$\color{#ffd1eb}{𖹭}$  $\color{#ffb5e5}{Simon}$  $\color{#ffb5e5}{Henriksson}$ $\color{#ffd1eb}{-}$ $\color{#ffb5e5}{COF}$ $\color{#ffd1eb}{𖹭}$
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Si\color{#ffd1eb}mon\ \color{#ffb0dd}Hen\color{#ff9cd4}rik\color{#ffb0dd}ss\color{#ffd1eb}on\ \color{#ffe6f4}-\ \color{#ffffff}Cr\color{#ffe6f4}y\ \color{#ffd1eb}Of\ \color{#ffb0dd}Fe\color{#ff9cd4}ar\ \color{#ffb0dd}𖹭$$
 
 
 </details>
 </div>
-
-
 
 <p align="center">
-$\color{#ffd1eb}{BEFORE}$ $\color{#ffd1eb}{YOU}$ $\color{#ffd1eb}{INTERACT!}$ 
+ $$\color{#ff9cd4}⊹₊\color{#ffb0dd}˚‧\color{#ffd1eb}‿︵\color{#ffe6f4}₊\ \color{#ffffff}୨୧\ \color{#ffe6f4}₊\ \color{#ffd1eb}︵‿\color{#ffb0dd}‧˚\color{#ff9cd4}₊⊹$$
 </p>
+
 <p align="center">
-$\color{#99007d}{𖹭}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{minor!}$ $\color{#ffb5e5}{NSFW}$ $\color{#ffb5e5}{jokes}$ $\color{#ffb5e5}{are}$ $\color{#ffb5e5}{fine}$ $\color{#ffb5e5}{until}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{taking}$ $\color{#ffb5e5}{it}$ $\color{#ffb5e5}{too}$ $\color{#ffb5e5}{far}$ $\color{#ffb5e5}{(><)}$ $\color{#99007d}{𖹭}$
+$$\color{#ffffff}BE\color{#ffe6fb}FO\color{#ffd4f8}RE\ \color{#ed8cdd}YO\color{#d457bf}U\ \color{#c230aa}IN\color{#9e0d88}TE\color{#c230aa}RA\color{#d457bf}CT!$$
+</p>
+
+<p align="center">
+$$\color{#ffffff}I'm\ \color{#ffe6f4}5\color{#ffd1eb}te\color{#ffb0dd}en!\ \color{#ff9cd4}NS\color{#ffb0dd}FW\ \color{#ffd1eb}jok\color{#ffe6f4}es\ \color{#ffffff}are\ \color{#ffe6f4}ok\color{#ffd1eb}ay\ \color{#ffb0dd}un\color{#ff9cd4}less\ \color{#ffb0dd}you\color{#ffd1eb}'re\ \color{#ffe6f4}ve\color{#ffffff}ry\ \color{#ffe6f4}we\color{#ffd1eb}ird.$$
 
  <p align="center">
-$\color{#99007d}{𖹭}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{HEAVYLY}$ $\color{#ffb5e5}{cathegorize}$ $\color{#ffb5e5}{people.}$ $\color{#ffb5e5}{I}$ 
-$\color{#ffb5e5}{might}$ $\color{#ffb5e5}{lose}$   $\color{#ffb5e5}{interest}$  $\color{#ffb5e5}{easily}$  $\color{#ffb5e5}{(sorry)}$ $\color{#99007d}{𖹭}$
-
+$$\color{#ffffff}I\ \color{#ffe6f4}te\color{#ffd1eb}nd\ \color{#ffb0dd}to\ \color{#ff9cd4}get\ \color{#ffb0dd}un\color{#ffd1eb}in\color{#ffe6f4}ter\color{#ffffff}est\color{#ffe6f4}ed\ \color{#ffd1eb}in\ \color{#ffb0dd}pe\color{#ff9cd4}op\color{#ffb0dd}le\ \color{#ffd1eb}ve\color{#ffe6f4}ry\ \color{#ffffff}eas\color{#ffd1eb}ily. \color{#ffb0dd}If\ \color{#ff9cd4}you\ \color{#ffb0dd}do\color{#ffd1eb}n't\ \color{#ffe6f4}sho\color{#ffffff}w\ \color{#ffe6f4}tra\color{#ffd1eb}its\ \color{#ffb0dd}I\ \color{#ff9cd4}li\color{#ffb0dd}ke,\ \color{#ffd1eb}we\ \color{#ffe6f4}mig\color{#ffffff}ht\ \color{#ffe6f4}not\ \color{#ffd1eb}get\ \color{#ffb0dd}alo\color{#ff9cd4}ng\ \color{#}(◞‸ ◟)💧$$
 </p>
 
 <p align="center">
-$\color{#99007d}{𖹭}$  
-$\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{diagnosed}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{autism.}$ $\color{#ffb5e5}{Pls}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{patient,}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ffb5e5}{take}$ $\color{#ffb5e5}{some}$  $\color{#ffb5e5}{time}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{process}$ $\color{#ffb5e5}{information!}$ $\color{#99007d}{𖹭}$
+$$\color{#ffffff}I'm\ \color{#ffe6f4}di\color{#ffd1eb}ag\color{#ffb0dd}nos\color{#ff9cd4}ed\ \color{#ffb0dd}wi\color{#ffd1eb}th\ \color{#ffe6f4}au\color{#ffffff}ti\color{#ffe6f4}sm.\ \color{#ffd1eb}Pls\ \color{#ffb0dd}be\ \color{#ff9cd4}pat\color{#ffb0dd}ie\color{#ffe6f4}nt,\ \color{#ffffff}I\ \color{#ffe6f4}may\ \color{#ff9cd4}ta\color{#ffb0dd}ke\ \color{#ffd1eb}some\ \color{#ffe6f4}ti\color{#ffffff}me\ \color{#ffe6f4}to\ \color{#ffd1eb}pr\color{#ffb0dd}oce\color{#ff9cd4}ss\ \color{#ffb0dd}in\color{#ffd1eb}for\color{#ffe6f4}ma\color{#ffffff}ti\color{#ffe6f4}on..$$
 </p>
 
 
 <p align="center">
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{tend}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{quiet}$ $\color{#ffb5e5}{-}$ 
-  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{get}$ $\color{#ffb5e5}{more}$ $\color{#ffb5e5}{open}$ $\color{#ffb5e5}{if}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{topic}$ $\color{#ffb5e5}{interests}$ $\color{#ffb5e5}{me!}$ $\color{#99007d}{𖹭}$
+$$\color{#ffffff}I\ \color{#ffe6f4}usu\color{#ffd1eb}ally\ \color{#ffb0dd}get\ \color{#ff9cd4}very\ \color{#ffb0dd}qu\color{#ffd1eb}iet\ \color{#ffe6f4}-\ \color{#ffffff}I\ \color{#ffe6f4}op\color{#ffd1eb}en\ \color{#ffb0dd}up\ \color{#ffb0dd}more\ \color{#ff9cd4}on\color{#ffb0dd}ce\ \color{#ffd1eb}we\ \color{#ffe6f4}get\ \color{#ffffff}to\ \color{#ffe6f4}kn\color{#ffd1eb}ow\ \color{#ffb0dd}ea\color{#ff9cd4}ch\ \color{#ffb0dd}other!$$
 </p>
 
 <p align="center">
-$\color{#99007d}{𖹭}$  $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{may}$ $\color{#ffb5e5}{also}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{silent}$ $\color{#ffb5e5}{for}$ $\color{#ffb5e5}{hours}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{even}$ 
-  $\color{#ffb5e5}{days..}$ $\color{#ffb5e5}{Not}$ $\color{#ffb5e5}{because}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{hate}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{I}$ 
-  $\color{#ffb5e5}{just}$ $\color{#ffb5e5}{don't}$ $\color{#ffb5e5}{know}$ $\color{#ffb5e5}{what}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{say!}$ $\color{#ffb5e5}{(◞‸ ◟)💧}$ $\color{#ffb5e5}{(in}$ $\color{#ffb5e5}{most}$ $\color{#ffb5e5}{cases)}$ $\color{#99007d}{𖹭}$
+$$\color{#ffffff}I\ \color{#ffe6f4}al\color{#ffd1eb}mo\color{#ffb0dd}st\ \color{#ff9cd4}nev\color{#ffb0dd}er\ \color{#ffd1eb}start\ \color{#ffd1eb}con\color{#ffd1eb}vos.\ \color{#ffd1eb}It's\ \color{#ffd1eb}pre\color{#ffd1eb}tty\ \color{#ffd1eb}aw\color{#ffd1eb}kwa\color{#ffd1eb}rd\ \color{#ffd1eb}for\ \color{#ffd1eb}me..$$
   </p>
 
+<p align=center>
+$$\color{#ffffff}Al\color{#ffe6f4}so\ \color{#ffd1eb}it's\ \color{#ffb0dd}im\color{#ff9cd4}por\color{#ffb0dd}ta\color{#ffd1eb}nt\ \color{#ffe6f4}to\ \color{#ffffff}me\ \color{#ffe6f4}to\ \color{#ffd1eb}dee\color{#ffb0dd}pen\ \color{#ff9cd4}the\ \color{#ffd1eb}frie\color{#ffe6f4}nd\color{#ffffff}ship.\ \color{#ffe6f4}I'm\ \color{#ffd1eb}not\ \color{#ff9cd4}re\color{#ffb0dd}al\color{#ffd1eb}ly\ \color{#ffe6f4}lo\color{#ffffff}ok\color{#ffe6f4}ing\ \color{#ffd1eb}for\ \color{#ffb0dd}oomfs\ \color{#ff9cd4}ri\color{#ffb0dd}ght\ \color{#ffd1eb}now,\ \color{#ffe6f4}as\ \color{#ffffff}I\ \color{#ffe6f4}pre\color{#ffd1eb}fer\ \color{#ffb0dd}hav\color{#ff9cd4}ing\ \color{#ffb0dd}mean\color{#ffb0dd}ing\color{#ffd1eb}ful\ \color{#ffe6f4}con\color{#ffffff}nec\color{#ffe6f4}tions.$$
+</p>
 
 <p align="center">
- $\color{#ffb5e5}{⊹}$  $\color{#99007d}{ ︶︶︶ }$  $\color{#ffb5e5}{ ୨୧  }$  $\color{#99007d}{︶︶︶}$  $\color{#ffb5e5}{⊹}$
+ $$\color{#d457bf}⊹₊\color{#ed8cdd}˚‧\color{#ffd4f8}︶︶︶\color{#ffe6fb}₊\ \color{#ffffff}୨୧\ \color{#ffe6fb}₊\ \color{#ffd4f8}︶︶︶\color{#ed8cdd}‧˚\color{#d457bf}₊⊹$$
 </p>
 
-<p align=center>
-  $\color{#99007d}{↓↓↓}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{AM}$ $\color{#ffb5e5}{THE}$ $\color{#ffb5e5}{PT'S}$ $\color{#ffb5e5}{SIGIL}$ $\color{#ffb5e5}{AND}$ $\color{#ffb5e5}{KATSUKI!!!}$ $\color{#ffb5e5}{♡}$ $\color{#99007d}{↓↓↓}$ 
- </p>
+<div align="center">
+<details>
+<summary> $$\color{#ffffff}↓↓↓\ \color{#fff5e3}TYSM\ \color{#ffe8bd}4\ \color{#ffd78c}TH\color{#ffc861}ESE!\ \color{#ffe8bd}↓↓↓$$</summary>
+ 
  
 <p align=center>
- <a href="https://github.com/pt-contributers">pt-contributers</a> ;  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> ; <a href="https://github.com/pt-fashion">pt-fashion</a> ; <a href="https://github.com/fans-town">fans-town</a> ; <a href="https://github.com/pt-nominations">pt-nominations</a> ; <a href="https://github.com/pt-medals">pt-medals</a> ; <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> ; <a href="https://github.com/FOLKTOWN">FOLKTOWN</a> ; <a href="https://github.com/cosplaytown">cosplaytown</a> ; <a href="https://github.com/character-town">character-town</a> ; <a href="https://github.com/Ponytowns-rewards">Ponytowns-rewards</a>
+ <a href="https://github.com/pt-contributers">pt-contributers</a> $\color{#ffffff}{;}$  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> $\color{#fff5e3}{;}$ <a href="https://github.com/pt-fashion">pt-fashion</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/fans-town">fans-town</a> $\color{#ffd78c}{;}$ <a href="https://github.com/pt-nominations">pt-nominations</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/pt-medals">pt-medals</a> $\color{#fff5e3}{;}$ <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> $\color{#ffffff}{;}$ <a href="https://github.com/FOLKTOWN">FOLKTOWN</a> $\color{#fff5e3}{;}$ <a href="https://github.com/cosplaytown">cosplaytown</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/character-town">character-town</a> $\color{#ffd78c}{;}$ <a href="https://github.com/Ponytowns-rewards">Ponytowns-rewards</a> $\color{#ffd78c}{+}$ $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
 </p>
+</div>
+</details>
+
 
 <p align=center>
-$\color{#ffb5e5}{Also}$ $\color{#ffb5e5}{pt's}$ $\color{#ffb5e5}{Katsuki}$ $\color{#ffb5e5}{and}$ $\color{#ffb5e5}{Neito}$ $\color{#ffb5e5}{yume-->}$ <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> $\color{#ffb5e5}{𖹭}$
+$$\color{#ffffff}Al\color{#fff5e3}so\ \color{#ffe8bd}Kat\color{#ffd78c}su\color{#ffc861}ki\ \color{#ffd78c}and\ \color{#ffe8bd}Nei\color{#fff5e3}to\ \color{#ffffff}yu\color{#fff5e3}me$$  $\color{#ffe8bd}{𖹭}$
+  <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a>
 </p>
-
-<p align=center>
-$\color{#ffb5e5}{✦}$ <a href="https://github.com/pt-friendships">pt-friendships</a> $\color{#ffb5e5}{ME}$ $\color{#ffb5e5}{AND}$ <a href="https://github.com/Uictim">Uictim</a> $\color{#ffb5e5}{!!!}$ $\color{#ffb5e5}{𖹭}$ $\color{#ffb5e5}{BLOWINGFUSEDUO}$ $\color{#ffb5e5}{𖹭}$
-</p>
-
-<p align=center>
-  $\color{#99007d}{⊹}$ $\color{#ffd1eb}{TYSM}$ $\color{#ffd1eb}{FOR}$ $\color{#ffd1eb}{NOMINATING}$ $\color{#ffd1eb}{ME!}$ $\color{#99007d}{⊹}$
-</p
-
- 
 
  <p align="center">
 <img src="https://files.catbox.moe/hejrt9.png"  width="1000" >
 </p>
-
-
-
 
 
 <p align="center">
@@ -164,36 +157,26 @@ $\color{#ff91d9}{˚₊‧˚}$ $\color{#99007d}{꒰𓊆⑅𓊇꒱}$ $\color{#ff91
 </p>
 
 <p align="center">
-$\color{#ffd1eb}{FOR}$ $\color{#ffd1eb}{PONY}$ $\color{#ffd1eb}{TOWN}$
+$$\color{#ffffff}FOR\ \color{#ffffff}PO\color{#ffffff}NY\ \color{#ffffff}TO\color{#ffffff}WN!$$
 </p>
  
 <p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{okay}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{c+h}$ $\color{#ffb5e5}{(Especially}$ $\color{#ffb5e5}{with}$ $\color{#ffb5e5}{people}$ $\color{#ffb5e5}{from}$ $\color{#ffb5e5}{my}$ $\color{#ffb5e5}{fandoms!)}$ $\color{#99007d}{༘୨୧}$
+$$\color{#ffffff}୨୧\ \color{#ffffff}I'm\ \color{#ffffff}ok\color{#ffffff}ay\ \color{#ffffff}wi\color{#ffffff}th\ \color{#ffffff}c+h\ \color{#ffffff}hehe\ \color{#ffffff}(FAN\color{#ffffff}DOM\ \color{#ffffff}ENC!) \color{#ffffff}୨୧$$
 </p>
  
 <p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{w2i,}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{take}$ $\color{#ffb5e5}{some}$ $\color{#ffb5e5}{time}$ $\color{#ffb5e5}{to}$ $\color{#ffb5e5}{reply}$ $\color{#ffb5e5}{sometimes}$ $\color{#ffb5e5}{so}$ $\color{#ffb5e5}{plz}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{patient!!}$ $\color{#99007d}{༘୨୧}$
- </p>
- 
-<p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{hide}$ $\color{#ffb5e5}{people}$ $\color{#ffb5e5}{if}$ $\color{#ffb5e5}{their}$ $\color{#ffb5e5}{chat}$ $\color{#ffb5e5}{bubble}$ $\color{#ffb5e5}{covers}$ $\color{#ffb5e5}{my/my}$ $\color{#ffb5e5}{friend's}$  $\color{#ffb5e5}{chat}$ $\color{#ffb5e5}{(sorry..)}$ $\color{#99007d}{༘୨୧}$
- </p>
- 
-<p align="center">
- $\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I}$  $\color{#ffb5e5}{don't}$ $\color{#ffb5e5}{add}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{randoms}$ $\color{#ffb5e5}{unless}$ $\color{#ffb5e5}{I've}$  $\color{#ffb5e5}{talked}$  $\color{#ffb5e5}{to}$  $\color{#ffb5e5}{them}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{lot}$ $\color{#ffb5e5}{before}$ $\color{#99007d}{༘୨୧}$
- </p>
- 
-<p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{don't}$ $\color{#ffb5e5}{block}$ $\color{#ffb5e5}{unless}$ $\color{#ffb5e5}{you're}$ $\color{#ffb5e5}{very}$ $\color{#ffb5e5}{weird/annoying}$ $\color{#99007d}{༘୨୧}$
+$$\color{#ffffff}W2i\ \color{#ffffff}un\color{#ffffff}le\color{#ffffff}ss\ \color{#ffffff}you\color{#ffffff}'re\ \color{#ffffff}my\ \color{#ffffff}fr\color{#ffffff}ie\color{#ffffff}nd/\color{#ffffff}oomf!$$
 </p>
 
-<p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{mostly}$ $\color{#ffb5e5}{sit}$ $\color{#ffb5e5}{by}$ $\color{#ffb5e5}{my}$ $\color{#ffb5e5}{friends,}$ $\color{#ffb5e5}{but}$ $\color{#ffb5e5}{when}$ $\color{#ffb5e5}{I'm}$ $\color{#ffb5e5}{alone}$ $\color{#ffb5e5}{you}$ $\color{#ffb5e5}{can}$ $\color{#ffb5e5}{find}$ $\color{#ffb5e5}{me}$ $\color{#ffb5e5}{around}$ $\color{#ffb5e5}{MHA}$ $\color{#ffb5e5}{or}$ $\color{#ffb5e5}{bakery}$ $\color{#99007d}{༘୨୧}$
-</p>    
-
-<p align="center">
-$\color{#99007d}{༘୨୧}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{might}$ $\color{#ffb5e5}{also}$ $\color{#ffb5e5}{not}$ $\color{#ffb5e5}{always}$ $\color{#ffb5e5}{be}$ $\color{#ffb5e5}{up}$ $\color{#ffb5e5}{for}$ $\color{#ffb5e5}{a}$ $\color{#ffb5e5}{chat..}$ $\color{#ffb5e5}{I}$ $\color{#ffb5e5}{put}$ $\color{#ffb5e5}{dnd}$ $\color{#ffb5e5}{when}$ $\color{#ffb5e5}{that}$ $\color{#ffb5e5}{happens}$ $\color{#99007d}{༘୨୧}$
+<p align=center>
+$$\color{#ffffff}I\ \color{#ffffff}som\color{#ffffff}et\color{#ffffff}imes\ \color{#ffffff}take\ \color{#ffffff}some\ \color{#ffffff}ti\color{#ffffff}me\ \color{#ffffff}to\ \color{#ffffff}rep\color{#ffffff}ly,\ \color{#ffffff}pls\ \color{#ffffff}be\ \color{#ffffff}pat\color{#ffffff}ient$$
 </p>
+
+<p align=center>
+ $$\color{#ffffff}I\ \color{#ffffff}hide\ \color{#ffffff}peo\color{#ffffff}ple\ \color{#ffffff}fre\color{#ffffff}ely\ \color{#ffffff}+\ \color{#ffffff}I\ \color{#ffffff}do\color{#ffffff}n't\  \color{#ffffff}add\ \color{#ffffff}to\ \color{#ffffff}fr\color{#ffffff}ien\color{#ffffff}ds\ \color{#ffffff}in\color{#ffffff}sta\color{#ffffff}ntly$$
+ </p
+
+wipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwip BROOO IT ACTUALLY TAKES SO MUCH TIME TO DO THIS SHITTT bear with me sob
 
 <p align="center">
  $\color{#99007d}{ ⏝ ⏝ ⏝  }$  $\color{#ffb5e5}{ 𓊆୨✦୧𓊇 }$  $\color{#99007d}{ ⏝ ⏝ ⏝}$
@@ -284,3 +267,5 @@ $\color{#99007d}{✦}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page!</a>
 
 
  <img src="https://files.catbox.moe/6kp59h.png" width="1000" >
+
+ 
