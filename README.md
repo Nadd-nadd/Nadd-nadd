@@ -123,7 +123,7 @@ $$\color{#ffffff}I\ \color{#ffe6f4}al\color{#ffd1eb}mo\color{#ffb0dd}st\ \color{
   </p>
 
 <p align=center>
-$$\color{#ffffff}Al\color{#ffe6f4}so\ \color{#ffd1eb}it's\ \color{#ffb0dd}im\color{#ff9cd4}por\color{#ffb0dd}ta\color{#ffd1eb}nt\ \color{#ffe6f4}to\ \color{#ffffff}me\ \color{#ffe6f4}to\ \color{#ffd1eb}dee\color{#ffb0dd}pen\ \color{#ff9cd4}the\ \color{#ffd1eb}frie\color{#ffe6f4}nd\color{#ffffff}ship.\ \color{#ffe6f4}I'm\ \color{#ffd1eb}not\ \color{#ff9cd4}re\color{#ffb0dd}al\color{#ffd1eb}ly\ \color{#ffe6f4}lo\color{#ffffff}ok\color{#ffe6f4}ing\ \color{#ffd1eb}for\ \color{#ffb0dd}oomfs\ \color{#ff9cd4}ri\color{#ffb0dd}ght\ \color{#ffd1eb}now,\ \color{#ffe6f4}as\ \color{#ffffff}I\ \color{#ffe6f4}pre\color{#ffd1eb}fer\ \color{#ffb0dd}hav\color{#ff9cd4}ing\ \color{#ffb0dd}mean\color{#ffb0dd}ing\color{#ffd1eb}ful\ \color{#ffe6f4}con\color{#ffffff}nec\color{#ffe6f4}tions.$$
+ $$\color{#ffe6f4}I'm\ \color{#ffe6f4}lo\color{#ffffff}ok\color{#ffe6f4}ing\ \color{#ffd1eb}for\ \color{#ffd1eb}more\ \color{#ffb0dd}mean\color{#ffb0dd}ing\color{#ffd1eb}ful\ \color{#ffe6f4}con\color{#ffffff}nec\color{#ffe6f4}tions\ \color{#ffd1eb}rn,\ \color{#ffb0dd}but\ \color{#ff9cd4}idm\ \color{#ffb0dd}ha\color{#ffd1eb}vi\color{#ffe6f4}ng\ \color{#ffffff}oo\color{#ffe6f4}mfs!\ \color{#ffd1eb}Int\ \color{#ffb0dd}wi\color{#ff9cd4}th\ \color{#ffb0dd}me\ \color{#ffd1eb}if\ \color{#ffe6f4}you\ \color{#ffffff}wa\color{#ffe6f4}nt\ \color{#ffb0dd}to!$$
 </p>
 
 <p align="center">
