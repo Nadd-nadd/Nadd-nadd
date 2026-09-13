@@ -9,10 +9,6 @@ ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my o
 <img src="https://files.catbox.moe/ctjc7l.png" width="600" >
 </p>
 
-
-
-
-
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Nadd-nadd&color=99007d" alt="Profile view counter on GitHub"> $$\color{#ffffff}(>,\color{#ffe6f4}<)$$
  <a href="https://www.imood.com/users/Nadnad"><img src="https://moods.imood.com/display/uname-Nadnad/fg-FFFFFF/bg-ffbae3/imood.gif" width="100" alt="The current mood of Nadnad at www.imood.com" border="0"></a>
@@ -22,11 +18,9 @@ ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my o
  $$\color{#ff9cd4}⋆..\color{#ffb0dd}˚‧\color{#ffd1eb}°˚°\color{#ffe6f4}₊\ \color{#ffffff}୨୧\ \color{#ffe6f4}₊\ \color{#ffd1eb}°˚°\color{#ffb0dd}‧˚\color{#ff9cd4}..⋆$$
 </p>
 
- 
 <p align="center"> $$\color{#ffffff}Ha\color{#ffe6fb}ih\color{#ffd4f8}hoo!\ \color{#ed8cdd}(˶>⩊\color{#d457bf}<˶)/\ \color{#c230aa}Wel\color{#9e0d88}co\color{#c230aa}me\ \color{#d457bf}to\ \color{#ed8cdd}my\ \color{#ffd4f8}Git\color{#ffe6fb}hub!$$
 </p>
 
-  
 <div align="center">
 <details>
 <summary>$$\color{#ffffff}Inf\color{#ffe6fb}o\ \color{#ffd4f8}abo\color{#ed8cdd}ut$$ $$\color{#d457bf}me!$$</summary>
@@ -90,6 +84,13 @@ $$\color{#ffffff}𖹭\ \color{#ffe6f4}Bo\color{#ffd1eb}Ja\color{#ffb0dd}ck\ \col
 
 $$\color{#ffffff}𖹭\ \color{#ffe6f4}Si\color{#ffd1eb}mon\ \color{#ffb0dd}Hen\color{#ff9cd4}rik\color{#ffb0dd}ss\color{#ffd1eb}on\ \color{#ffe6f4}-\ \color{#ffffff}Cr\color{#ffe6f4}y\ \color{#ffd1eb}Of\ \color{#ffb0dd}Fe\color{#ff9cd4}ar\ \color{#ffb0dd}𖹭$$
 
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Kats\color{#ffd1eb}uki\ \color{#ffb0dd}Ba\color{#ff9cd4}ku\color{#ffb0dd}go \color{#ffe6f4}-\ \color{#ffffff}M\color{#ffe6f4}H\color{#ffd1eb}A\  \color{#ffb0dd}𖹭$$
+
+
+$$\color{#ffffff}𖹭\ \color{#ffe6f4}Izu\color{#ffd1eb}ku\ \color{#ffb0dd}Mi\color{#ff9cd4}dor\color{#ffb0dd}iya \color{#ffe6f4}-\ \color{#ffffff}M\color{#ffe6f4}H\color{#ffd1eb}A\  \color{#ffb0dd}𖹭$$
+
+
+
 
 </details>
 </div>
@@ -136,7 +137,10 @@ $$\color{#ffffff}I\ \color{#ffe6f4}al\color{#ffd1eb}mo\color{#ffb0dd}st\ \color{
  
  
 <p align=center>
- <a href="https://github.com/pt-contributers">pt-contributers</a> $\color{#ffffff}{;}$  <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> $\color{#fff5e3}{;}$ <a href="https://github.com/pt-fashion">pt-fashion</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/fans-town">fans-town</a> $\color{#ffd78c}{;}$ <a href="https://github.com/pt-nominations">pt-nominations</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/pt-medals">pt-medals</a> $\color{#fff5e3}{;}$ <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> $\color{#ffffff}{;}$ <a href="https://github.com/FOLKTOWN">FOLKTOWN</a> $\color{#fff5e3}{;}$ <a href="https://github.com/cosplaytown">cosplaytown</a> $\color{#ffe8bd}{;}$ <a href="https://github.com/character-town">character-town</a> $\color{#ffd78c}{;}$ <a href="https://github.com/Ponytowns-rewards">Ponytowns-rewards</a> $\color{#ffd78c}{+}$ $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
+$\color{#ffe8bd}{⋮}$ <a href="https://github.com/pt-contributers">.˳˳.</a>   <a href="https://github.com/pt-walk-of-fame">₊⊹</a>  <a href="https://github.com/pt-fashion">˚‧‬</a> <a href="https://github.com/fans-town">︶︶︶</a>  <a href="https://github.com/pt-nominations">꒰𓊆</a>  <a href="https://github.com/pt-medals">୨୧</a>  <a href="https://github.com/ponytown-nominations">𓊇꒱</a>  <a href="https://github.com/FOLKTOWN">︶︶︶</a> <a href="https://github.com/cosplaytown">‧˚</a>  <a href="https://github.com/character-town">⊹₊</a>  <a href="https://github.com/Ponytowns-rewards">.˳˳.</a> $\color{#ffe8bd}{⋮}$
+</p>
+<p align=center>
+$\color{#ffd78c}{+}$  $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
 </p>
 </div>
 </details>
@@ -153,50 +157,43 @@ $$\color{#ffffff}Al\color{#fff5e3}so\ \color{#ffe8bd}Kat\color{#ffd78c}su\color{
 
 
 <p align="center">
-$\color{#ff91d9}{˚₊‧˚}$ $\color{#99007d}{꒰𓊆⑅𓊇꒱}$ $\color{#ff91d9}{ ‧₊˚}$
+ $$\color{#c230aa}︵\color{#d457bf}*:\color{#ed8cdd}.˳˳.\color{#ffe6fb}꒰𓊆\color{#ffffff}⑅\color{#ffe6fb}𓊇꒱\color{#ffd4f8}.˳˳.\color{#ed8cdd}:*\color{#d457bf}\color{#c230aa}︵$$
 </p>
 
 <p align="center">
-$$\color{#ffffff}FOR\ \color{#ffffff}PO\color{#ffffff}NY\ \color{#ffffff}TO\color{#ffffff}WN!$$
+$$\color{#ffffff}FOR\ \color{#ffe6f4}PO\color{#ffd1eb}NY\ \color{#ffb0dd}TO\color{#ff9cd4}WN!$$
+</p>
+
+$$\color{#ffffff}I\ \color{#ffe6fb}hide\ \color{#ffd4f8}peo\color{#ed8cdd}ple\ \color{#d457bf}fre\color{#c230aa}ely\ \color{#9e0d88}+\ \color{#c230aa}I\ \color{#d457bf}do\color{#ed8cdd}n't\  \color{#ffd4f8}add\ \color{#ffe6fb}to\ \color{#ffffff}fr\color{#ffe6fb}ien\color{#ffd4f8}ds\ \color{#ed8cdd}in\color{#d457bf}sta\color{#c230aa}ntly$$
+  
+<p align="center">
+$$\color{#ffffff}Pls\ \color{#ffe6fb}che\color{#ffd4f8}ck\ \color{#ed8cdd}my\ \color{#d457bf}sta\color{#c230aa}tus\ \color{#9e0d88}be\color{#c230aa}fo\color{#d457bf}re\ \color{#ed8cdd}int\color{#ffd4f8}era\color{#ffe6fb}ct\color{#ffffff}ing.\ \color{#ffe6fb}I'm\ \color{#ffd4f8}not\ \color{#ed8cdd}al\color{#d457bf}wa\color{#c230aa}ys\ \color{#9e0d88}in\ \color{#c230aa}the\ \color{#d457bf}mo\color{#ed8cdd}od\ \color{#ffd4f8}to\ \color{#ffe6fb}talk\ \color{#ffffff}and$$  
+ $$\color{#ffffff}I\ \color{#ffe6fb}usu\color{#ffd4f8}al\color{#ed8cdd}ly\ \color{#d457bf}inf\color{#c230aa}orm\ \color{#9e0d88}abo\color{#c230aa}ut\ \color{#d457bf}it\ \color{#ed8cdd}on\ \color{#ffd4f8}my\ \color{#ffe6fb}dc\ \color{#ffffff}sta\color{#ffe6fb}tus\ \color{#ffd4f8}(which\ \color{#ed8cdd}you\ \color{#d457bf}can\ \color{#c230aa}fi\color{#9e0d88}nd\ \color{#c230aa}on\ \color{#d457bf}my\ \color{#ed8cdd}gun\color{#ffd4f8}s.lol)$$
+ $$\color{#ffe6fb}or\ \color{#ffd4f8}I\ \color{#ed8cdd}put\ \color{#d457bf}dnd\ \color{#c230aa}on\ \color{#9e0d88}my\ \color{#c230aa}pt\ \color{#d457bf}profile!$$
 </p>
  
 <p align="center">
-$$\color{#ffffff}୨୧\ \color{#ffffff}I'm\ \color{#ffffff}ok\color{#ffffff}ay\ \color{#ffffff}wi\color{#ffffff}th\ \color{#ffffff}c+h\ \color{#ffffff}hehe\ \color{#ffffff}(FAN\color{#ffffff}DOM\ \color{#ffffff}ENC!) \color{#ffffff}୨୧$$
+$$\color{#ffffff}୨୧\ \color{#ffe6fb}I'm\ \color{#ffd4f8}ok\color{#ed8cdd}ay\ \color{#d457bf}wi\color{#c230aa}th\ \color{#9e0d88}c+h\ \color{#c230aa}hehe\ \color{#d457bf}(FAN\color{#ed8cdd}DOM\ \color{#ffd4f8}ENC!) \color{#ffe6fb}୨୧$$
 </p>
  
 <p align="center">
-$$\color{#ffffff}W2i\ \color{#ffffff}un\color{#ffffff}le\color{#ffffff}ss\ \color{#ffffff}you\color{#ffffff}'re\ \color{#ffffff}my\ \color{#ffffff}fr\color{#ffffff}ie\color{#ffffff}nd/\color{#ffffff}oomf!$$
+$$\color{#ffffff}W2i\ \color{#ffe6fb}un\color{#ffd4f8}le\color{#ed8cdd}ss\ \color{#d457bf}you\color{#c230aa}'re\ \color{#9e0d88}my\ \color{#c230aa}fr\color{#d457bf}ie\color{#ed8cdd}nd/\color{#ffd4f8}oomf!$$
 </p>
 
 <p align=center>
-$$\color{#ffffff}I\ \color{#ffffff}som\color{#ffffff}et\color{#ffffff}imes\ \color{#ffffff}take\ \color{#ffffff}some\ \color{#ffffff}ti\color{#ffffff}me\ \color{#ffffff}to\ \color{#ffffff}rep\color{#ffffff}ly,\ \color{#ffffff}pls\ \color{#ffffff}be\ \color{#ffffff}pat\color{#ffffff}ient$$
+$$\color{#ffffff}I\ \color{#ffe6fb}som\color{#ffd4f8}et\color{#ed8cdd}imes\ \color{#d457bf}take\ \color{#c230aa}some\ \color{#9e0d88}ti\color{#c230aa}me\ \color{#d457bf}to\ \color{#ed8cdd}rep\color{#ffd4f8}ly,\ \color{#ffffff}pls\ \color{#ffe6fb}be\ \color{#ffd4f8}pat\color{#ed8cdd}ient$$
 </p>
 
 <p align=center>
- $$\color{#ffffff}I\ \color{#ffffff}hide\ \color{#ffffff}peo\color{#ffffff}ple\ \color{#ffffff}fre\color{#ffffff}ely\ \color{#ffffff}+\ \color{#ffffff}I\ \color{#ffffff}do\color{#ffffff}n't\  \color{#ffffff}add\ \color{#ffffff}to\ \color{#ffffff}fr\color{#ffffff}ien\color{#ffffff}ds\ \color{#ffffff}in\color{#ffffff}sta\color{#ffffff}ntly$$
+ $$\color{#ffb0dd}︶\color{#ffd1eb}⏔⏔⏔\color{#ffe6f4}꒰\color{#ffffff}᧔ෆ᧓\color{#ffe6f4}꒱\color{#ffd1eb}⏔⏔⏔\color{#ffb0dd}︶$$
  </p
 
-wipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwipwip BROOO IT ACTUALLY TAKES SO MUCH TIME TO DO THIS SHITTT bear with me sob
-
-<p align="center">
- $\color{#99007d}{ ⏝ ⏝ ⏝  }$  $\color{#ffb5e5}{ 𓊆୨✦୧𓊇 }$  $\color{#99007d}{ ⏝ ⏝ ⏝}$
-</p>
-
-
-
-
-
-<p align="center">
+ <p align="center">
 <img src="https://files.catbox.moe/vcq5z9.gif"  width="1000" >
 </p>
 
-
-
-
-
-
 <p align="center">
- $\color{#99007d}{⏔⏔⏔ }$  $\color{#ffb5e5}{ ꒰ ᧔ෆ᧓ ꒱ }$  $\color{#99007d}{ ⏔⏔⏔}$
+ $$\color{#ffffff}︶\color{#ffffff}\color{#ffffff}⏔⏔⏔\color{#ffffff}꒰\color{#ffffff}᧔ෆ᧓\color{#ffffff}꒱\color{#ffffff}⏔⏔⏔\color{#ffffff}\color{#ffffff}\color{#ffffff}︶$$
 </p>
 
 <img src="https://files.catbox.moe/bu73dn.png" align="left" width="400"  style="margin-right: 15px;">
