@@ -113,10 +113,10 @@ $$\color{#ffffff}BE\color{#ffe6fb}FO\color{#ffd4f8}RE\ \color{#ed8cdd}YO\color{#
 </p>
 
 <p align="center">
-$$\color{#ffffff}𖹭\ \color{#ffffff}I'm\ \color{#ffe6f4}a\ \color{#ffd1eb}mi\color{#ffb0dd}nor.\ \color{#ff9cd4}NS\color{#ffb0dd}FW\ \color{#ffd1eb}jok\color{#ffe6f4}es\ \color{#ffffff}are\ \color{#ffe6f4}ok\color{#ffd1eb}ay\ \color{#ffb0dd}un\color{#ff9cd4}less\ \color{#ffb0dd}you\color{#ffd1eb}'re\ \color{#ffe6f4}ve\color{#ffffff}ry\ \color{#ffe6f4}we\color{#ffd1eb}ird.\ \color{#ffd1eb}𖹭$$
+$$\color{#ffffff}✦\ \color{#ffffff}I'm\ \color{#ffe6f4}a\ \color{#ffd1eb}mi\color{#ffb0dd}nor.\ \color{#ff9cd4}NS\color{#ffb0dd}FW\ \color{#ffd1eb}jok\color{#ffe6f4}es\ \color{#ffffff}are\ \color{#ffe6f4}ok\color{#ffd1eb}ay\ \color{#ffb0dd}un\color{#ff9cd4}less\ \color{#ffb0dd}you\color{#ffd1eb}'re\ \color{#ffe6f4}ve\color{#ffffff}ry\ \color{#ffe6f4}we\color{#ffd1eb}ird.\ \color{#ffd1eb}✦$$
 
  <p align="center">
-$$\color{#ffffff}𖹭\ \color{#ffffff}I\ \color{#ffe6f4}te\color{#ffd1eb}nd\ \color{#ffb0dd}to\ \color{#ff9cd4}get\ \color{#ffb0dd}un\color{#ffd1eb}in\color{#ffe6f4}ter\color{#ffffff}est\color{#ffe6f4}ed\ \color{#ffd1eb}in\ \color{#ffb0dd}pe\color{#ff9cd4}op\color{#ffb0dd}le\ \color{#ffd1eb}ve\color{#ffe6f4}ry\ \color{#ffffff}eas\color{#ffd1eb}ily. \color{#ffb0dd}If\ \color{#ff9cd4}you\ \color{#ffb0dd}do\color{#ffd1eb}n't\ \color{#ffe6f4}sho\color{#ffffff}w\ \color{#ffe6f4}tra\color{#ffd1eb}its\ \color{#ffb0dd}I\ \color{#ff9cd4}li\color{#ffb0dd}ke,\ \color{#ffd1eb}we\ \color{#ffe6f4}mig\color{#ffffff}ht\ \color{#ffe6f4}not\ \color{#ffd1eb}get\ \color{#ffb0dd}alo\color{#ff9cd4}ng\ \color{#ff9cd4}(◞‸ ◟)💧\ \color{#ff9cd4}𖹭$$
+$$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}te\color{#ffd1eb}nd\ \color{#ffb0dd}to\ \color{#ff9cd4}get\ \color{#ffb0dd}un\color{#ffd1eb}in\color{#ffe6f4}ter\color{#ffffff}est\color{#ffe6f4}ed\ \color{#ffd1eb}in\ \color{#ffb0dd}pe\color{#ff9cd4}op\color{#ffb0dd}le\ \color{#ffd1eb}ve\color{#ffe6f4}ry\ \color{#ffffff}eas\color{#ffd1eb}ily. \color{#ffb0dd}If\ \color{#ff9cd4}you\ \color{#ffb0dd}do\color{#ffd1eb}n't\ \color{#ffe6f4}sho\color{#ffffff}w\ \color{#ffe6f4}tra\color{#ffd1eb}its\ \color{#ffb0dd}I\ \color{#ff9cd4}li\color{#ffb0dd}ke,\ \color{#ffd1eb}we\ \color{#ffe6f4}mig\color{#ffffff}ht\ \color{#ffe6f4}not\ \color{#ffd1eb}get\ \color{#ffb0dd}alo\color{#ff9cd4}ng\ \color{#ff9cd4}(◞‸ ◟)💧\ \color{#ff9cd4}✦$$
 </p>
 
 <p align="center">
@@ -125,7 +125,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}I'm\ \color{#ffe6f4}di\color{#ffd1eb}ag\col
 
 
 <p align="center">
-$$\color{#ffffff}𖹭\ \color{#ffffff}I\ \color{#ffe6f4}usu\color{#ffd1eb}ally\ \color{#ffb0dd}get\ \color{#ff9cd4}very\ \color{#ffb0dd}qu\color{#ffd1eb}iet\ \color{#ffe6f4}-\ \color{#ffffff}I\ \color{#ffe6f4}get\ \color{#ffd1eb}more\ \color{#ffb0dd}talka\color{#ffd1eb}tive\ \color{#ffe6f4}on\color{#ffffff}ce\ \color{#ffe6f4}I\ \color{#ffd1eb}get\ \color{#ffb0dd}com\color{#ff9cd4}for\color{#ffb0dd}ta\color{#ffd1eb}ble!\ \color{#ffd1eb}𖹭$$
+$$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}usu\color{#ffd1eb}ally\ \color{#ffb0dd}get\ \color{#ff9cd4}very\ \color{#ffb0dd}qu\color{#ffd1eb}iet\ \color{#ffe6f4}-\ \color{#ffffff}I\ \color{#ffe6f4}get\ \color{#ffd1eb}more\ \color{#ffb0dd}talka\color{#ffd1eb}tive\ \color{#ffe6f4}on\color{#ffffff}ce\ \color{#ffe6f4}I\ \color{#ffd1eb}get\ \color{#ffb0dd}com\color{#ff9cd4}for\color{#ffb0dd}ta\color{#ffd1eb}ble!\ \color{#ffd1eb}✦$$
 </p>
 
 <p align="center">
@@ -133,7 +133,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}al\color{#ffd1eb}mo\color
   </p>
 
 <p algin=center>
-$$\color{#ffffff}𖹭\ \color{#ffffff}I\ \color{#ffe6f4}ha\color{#ffd1eb}ve\ \color{#ffb0dd}very\ \color{#ff9cd4}low\ \color{#ffb0dd}so\color{#ffd1eb}ci\color{#ffe6f4}al\ \color{#ffffff}ba\color{#ffe6f4}tt\color{#ffd1eb}ery..\ \color{#ffb0dd}Pls\ \color{#ff9cd4}re\color{#ffb0dd}sp\color{#ffd1eb}ect\ \color{#ffe6f4}that.\ \color{#ffe6f4}𖹭$$
+$$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}ha\color{#ffd1eb}ve\ \color{#ffb0dd}very\ \color{#ff9cd4}low\ \color{#ffb0dd}so\color{#ffd1eb}ci\color{#ffe6f4}al\ \color{#ffffff}ba\color{#ffe6f4}tt\color{#ffd1eb}ery..\ \color{#ffb0dd}Pls\ \color{#ff9cd4}re\color{#ffb0dd}sp\color{#ffd1eb}ect\ \color{#ffe6f4}that.\ \color{#ffe6f4}✦$$
 </p>
 
 <p align=center>
