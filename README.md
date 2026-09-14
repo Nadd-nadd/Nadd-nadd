@@ -155,6 +155,9 @@ $\color{#ffe8bd}{⋮}$ <a href="https://github.com/pt-contributers">.˳˳.</a>  
 <p align=center>
 $\color{#ffd78c}{+}$  $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
 </p>
+ <p align=center>
+  $\color{#ffd78c}{+}$  $$\color{#ffe8bd}Pt's\ \color{#fff5e3}Nar\color{#ffffff}rator's\ \color{#fff5e3}HE\color{#ffe8bd}AVI\color{#ffd78c}EST\ \color{#ffd78c}kin$$ <a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a> $$\color{#ffe8bd}<3$$
+  </p>
 </div>
 </details>
 
