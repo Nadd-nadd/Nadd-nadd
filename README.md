@@ -1,4 +1,4 @@
-![Now Playing](https://novatorem-lastfm-readme.vercel.app/api/top-tracks?user=Nadnaddd)
+
 
 ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my other sites might get updated too heh
 
@@ -212,8 +212,8 @@ $$\color{#ffffff}✦\color{#ffffff}Ani\color{#ffffff}mal\ \color{#ffffff}hos\col
 </div>
 
 <div align=center>
- 
-$$\color{#ffffff}D\color{#ffffff}N\color{#ffffff}I!$$
+ <details>
+<summary>$$\color{#ffffff}D\color{#ffffff}N\color{#ffffff}I!$$</summary>
 
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Proshippers/darkshippers}$
 
@@ -236,6 +236,9 @@ $\color{#99007d}{✦}$ $\color{#ffb5e5}{Zoophilia}$ $\color{#ffb5e5}{supporters}
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Necrophilia}$ $\color{#ffb5e5}{supporters}$
 
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Non-con/rape}$ $\color{#ffb5e5}{kink}$ $\color{#ffb5e5}{supporters}$
+</details>
+
+![Now Playing](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=Nadnaddd)
 
 <img src="https://files.catbox.moe/jmnixp.png" width=400>
 </div>
