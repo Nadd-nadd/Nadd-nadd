@@ -212,7 +212,7 @@ $$\color{#ffffff}♡\ \color{#ffffff}I\ \color{#ffe6fb}som\color{#ffd4f8}et\colo
 
 <img src="https://files.catbox.moe/axym61.gif" width="60"> <img src="https://files.catbox.moe/ftno8o.gif"> <img src="https://files.catbox.moe/q8vyzg.gif" > <img src="https://files.catbox.moe/b1a7sq.gif"> <img src="https://files.catbox.moe/05h45w.gif">
 
- $$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰\color{#ffffff}✦\color{#ffe6fb}꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
+ $$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰✦꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
  
 
 <details>
@@ -266,7 +266,7 @@ $$\color{#ffffff}୨୧\ \color{#ffffff}Zoo\color{#ffe6f4}phi\color{#ffd1eb}lia\
 $$\color{#ffffff}✦\ \color{#ffffff}Non-\color{#ffe6f4}con/\color{#ffd1eb}ra\color{#ffb0dd}pe\ \color{#ffb0dd}kink\ \color{#ff9cd4}su\color{#ffb0dd}pp\color{#ffd1eb}or\color{#ffe6f4}ers\ \color{#ffe6f4}✦$$
 </details>
 
-$$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰\color{#ffffff}✦︎\color{#ffe6fb}꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
+$$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰♡꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
 
 ![Now Playing](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=Nadnaddd)
 
