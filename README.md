@@ -1,3 +1,4 @@
+![Now Playing](https://novatorem-lastfm-readme.vercel.app/api/top-tracks?user=Nadnaddd)
 
 ITS A WIPPPP!!!! WATCH OUTTTT ITS A WIPPP im changing a few things, some of my other sites might get updated too heh
 
