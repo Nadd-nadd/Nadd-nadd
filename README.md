@@ -185,20 +185,34 @@ $$\color{#ffffff}I\ \color{#ffe6fb}som\color{#ffd4f8}et\color{#ed8cdd}imes\ \col
 </p>
 
 <p align=center>
- $$\color{#ffb0dd}︶\color{#ffd1eb}⏔⏔⏔\color{#ffe6f4}꒰\color{#ffffff}᧔ෆ᧓\color{#ffe6f4}꒱\color{#ffd1eb}⏔⏔⏔\color{#ffb0dd}︶$$
+ $$\color{#ffb0dd}︶\color{#ffd1eb}⏔⏔⏔\color{#ffe6f4}꒰\color{#ffffff}᧔✦᧓\color{#ffe6f4}꒱\color{#ffd1eb}⏔⏔⏔\color{#ffb0dd}︶$$
  </p
 
  <p align="center">
 <img src="https://files.catbox.moe/vcq5z9.gif"  width="1000" >
 </p>
 
-<p align="center">
- $$\color{#ffffff}︶\color{#ffffff}\color{#ffffff}⏔⏔⏔\color{#ffffff}꒰\color{#ffffff}᧔ෆ᧓\color{#ffffff}꒱\color{#ffffff}⏔⏔⏔\color{#ffffff}\color{#ffffff}\color{#ffffff}︶$$
-</p>
 
 <img src="https://files.catbox.moe/bu73dn.png" align="left" width="400"  style="margin-right: 15px;">
 
-$\color{#ffd1eb}{DNI!}$
+ $$\color{#ffffff}︶୨୧︶\color{#ffffff}\color{#ffffff}⊹ .\color{#ffffff}꒰\color{#ffffff}ෆ\color{#ffffff}꒱\color{#ffffff}. ⊹\color{#ffffff}\color{#ffffff}\color{#ffffff}︶୨୧︶$$
+ 
+<div align="center">
+<details>
+<summary>  $$\color{#ffffff}TH\color{#ffffff}IN\ \color{#ffffff}IC\color{#ffffff}E!$$</summary>
+
+
+$$\color{#ffffff}✦\color{#ffffff}For\color{#ffffff}sa\color{#ffffff}ken\ \color{#ffffff}fa\color{#ffffff}ns$$
+
+$$\color{#ffffff}✦\color{#ffffff}Ver\color{#ffffff}ity\ \color{#ffffff}ser\color{#ffffff}ies\ \color{#ffffff}fa\color{#ffffff}ns$$
+
+$$\color{#ffffff}✦\color{#ffffff}Ani\color{#ffffff}mal\ \color{#ffffff}hos\color{#ffffff}pi\color{#ffffff}tal\ \color{#ffffff}fa\color{#ffffff}ns$$
+</details>
+</div>
+
+<div align=center>
+ 
+$$\color{#ffffff}D\color{#ffffff}N\color{#ffffff}I!$$
 
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Proshippers/darkshippers}$
 
@@ -223,6 +237,7 @@ $\color{#99007d}{✦}$ $\color{#ffb5e5}{Necrophilia}$ $\color{#ffb5e5}{supporter
 $\color{#99007d}{✦}$ $\color{#ffb5e5}{Non-con/rape}$ $\color{#ffb5e5}{kink}$ $\color{#ffb5e5}{supporters}$
 
 <img src="https://files.catbox.moe/jmnixp.png" width=400>
+</div>
 
 <br clear="left" />
 
