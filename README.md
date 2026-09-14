@@ -141,7 +141,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}ha\color{#ffd1eb}ve\ \col
 </p>
 
 <p align="center">
- $$\color{#d457bf}⊹₊\color{#ed8cdd}˚‧\color{#ffd4f8}︶︶︶\color{#ffe6fb}₊\ \color{#ffffff}୨\ \color{#ffffff}𖹭\ \color{#ffffff}୧\ \color{#ffe6fb}₊\ \color{#ffd4f8}︶︶︶\color{#ed8cdd}‧˚\color{#d457bf}₊⊹$$
+ $$\color{#d457bf}⊹₊\color{#ed8cdd}˚‧\color{#ffd4f8}︶︶︶\color{#ffe6fb}₊\ \color{#ffffff}୨♡୧\ \color{#ffe6fb}₊\color{#ffd4f8}︶︶︶\color{#ed8cdd}‧˚\color{#d457bf}₊⊹$$
 </p>
 
 <div align="center">
@@ -177,28 +177,28 @@ $$\color{#ffffff}Al\color{#fff5e3}so\ \color{#ffe8bd}Kat\color{#ffd78c}su\color{
 $$\color{#ffffff}FOR\ \color{#ffe6f4}PO\color{#ffd1eb}NY\ \color{#ffb0dd}TO\color{#ff9cd4}WN!$$
 </p>
 
-$$\color{#ffffff}I\ \color{#ffe6fb}hide\ \color{#ffd4f8}peo\color{#ed8cdd}ple\ \color{#d457bf}fre\color{#c230aa}ely\ \color{#9e0d88}+\ \color{#c230aa}I\ \color{#d457bf}do\color{#ed8cdd}n't\  \color{#ffd4f8}add\ \color{#ffe6fb}to\ \color{#ffffff}fr\color{#ffe6fb}ien\color{#ffd4f8}ds\ \color{#ed8cdd}in\color{#d457bf}sta\color{#c230aa}ntly$$
+$$\color{#ffffff}♡\ \color{#ffffff}I\ \color{#ffe6fb}hide\ \color{#ffd4f8}peo\color{#ed8cdd}ple\ \color{#d457bf}fre\color{#c230aa}ely\ \color{#9e0d88}+\ \color{#c230aa}I\ \color{#d457bf}do\color{#ed8cdd}n't\  \color{#ffd4f8}add\ \color{#ffe6fb}to\ \color{#ffffff}fr\color{#ffe6fb}ien\color{#ffd4f8}ds\ \color{#ed8cdd}in\color{#d457bf}sta\color{#c230aa}ntly\ \color{#c230aa}♡$$
   
 <p align="center">
-$$\color{#ffffff}Pls\ \color{#ffe6fb}che\color{#ffd4f8}ck\ \color{#ed8cdd}my\ \color{#d457bf}sta\color{#c230aa}tus\ \color{#9e0d88}be\color{#c230aa}fo\color{#d457bf}re\ \color{#ed8cdd}int\color{#ffd4f8}era\color{#ffe6fb}ct\color{#ffffff}ing.\ \color{#ffe6fb}I'm\ \color{#ffd4f8}not\ \color{#ed8cdd}al\color{#d457bf}wa\color{#c230aa}ys\ \color{#9e0d88}in\ \color{#c230aa}the\ \color{#d457bf}mo\color{#ed8cdd}od\ \color{#ffd4f8}to\ \color{#ffe6fb}talk\ \color{#ffffff}and$$  
- $$\color{#ffffff}I\ \color{#ffe6fb}usu\color{#ffd4f8}al\color{#ed8cdd}ly\ \color{#d457bf}inf\color{#c230aa}orm\ \color{#9e0d88}abo\color{#c230aa}ut\ \color{#d457bf}it\ \color{#ed8cdd}on\ \color{#ffd4f8}my\ \color{#ffe6fb}dc\ \color{#ffffff}sta\color{#ffe6fb}tus\ \color{#ffd4f8}(which\ \color{#ed8cdd}you\ \color{#d457bf}can\ \color{#c230aa}fi\color{#9e0d88}nd\ \color{#c230aa}on\ \color{#d457bf}my\ \color{#ed8cdd}gun\color{#ffd4f8}s.lol)$$
- $$\color{#ffe6fb}or\ \color{#ffd4f8}I\ \color{#ed8cdd}put\ \color{#d457bf}dnd\ \color{#c230aa}on\ \color{#9e0d88}my\ \color{#c230aa}pt\ \color{#d457bf}profile!$$
+$$\color{#ffffff}♡\ \color{#ffffff}Pls\ \color{#ffe6fb}che\color{#ffd4f8}ck\ \color{#ed8cdd}my\ \color{#d457bf}sta\color{#c230aa}tus\ \color{#9e0d88}be\color{#c230aa}fo\color{#d457bf}re\ \color{#ed8cdd}int\color{#ffd4f8}era\color{#ffe6fb}ct\color{#ffffff}ing.\ \color{#ffe6fb}I'm\ \color{#ffd4f8}not\ \color{#ed8cdd}al\color{#d457bf}wa\color{#c230aa}ys\ \color{#9e0d88}in\ \color{#c230aa}the\ \color{#d457bf}mo\color{#ed8cdd}od\ \color{#ffd4f8}to\ \color{#ffe6fb}talk\ \color{#ffffff}and\ \color{#ffffff}♡$$  
+ $$\color{#ffffff}♡\ \color{#ffffff}I\ \color{#ffe6fb}usu\color{#ffd4f8}al\color{#ed8cdd}ly\ \color{#d457bf}inf\color{#c230aa}orm\ \color{#9e0d88}abo\color{#c230aa}ut\ \color{#d457bf}it\ \color{#ed8cdd}on\ \color{#ffd4f8}my\ \color{#ffe6fb}dc\ \color{#ffffff}sta\color{#ffe6fb}tus\ \color{#ffd4f8}(which\ \color{#ed8cdd}you\ \color{#d457bf}can\ \color{#c230aa}fi\color{#9e0d88}nd\ \color{#c230aa}on\ \color{#d457bf}my\ \color{#ed8cdd}gun\color{#ffd4f8}s.lol)\ \color{#ffd4f8}♡$$
+ $$\color{#ffe6fb}or\ \color{#ffd4f8}I\ \color{#ed8cdd}put\ \color{#d457bf}dnd\ \color{#c230aa}on\ \color{#9e0d88}my\ \color{#c230aa}pt\ \color{#d457bf}profile!\ \color{#d457bf}♡$$
 </p>
  
 <p align="center">
-$$\color{#ffffff}୨୧\ \color{#ffe6fb}I'm\ \color{#ffd4f8}ok\color{#ed8cdd}ay\ \color{#d457bf}wi\color{#c230aa}th\ \color{#d457bf}c+h\ \color{#ed8cdd}hehe\ \color{#ffe6fb}(FAN\color{#ffffff}DOM\ \color{#ffe6fb}ENC!) \color{#ed8cdd}୨୧$$
+$$\color{#ffffff}♡\ \color{#ffe6fb}I'm\ \color{#ffd4f8}ok\color{#ed8cdd}ay\ \color{#d457bf}wi\color{#c230aa}th\ \color{#d457bf}c+h\ \color{#ed8cdd}hehe\ \color{#ffe6fb}(FAN\color{#ffffff}DOM\ \color{#ffe6fb}ENC!) \color{#ffe6fb}♡$$
 </p>
  
 <p align="center">
-$$\color{#ffffff}W2i\ \color{#ffe6fb}un\color{#ffd4f8}le\color{#ed8cdd}ss\ \color{#d457bf}you\color{#c230aa}'re\ \color{#d457bf}my\ \color{#ed8cdd}fr\color{#ffd4f8}ie\color{#ffe6fb}nd/\color{#ffffff}oomf!$$
+$$\color{#ffffff}♡\ \color{#ffffff}W2i\ \color{#ffe6fb}un\color{#ffd4f8}le\color{#ed8cdd}ss\ \color{#d457bf}you\color{#c230aa}'re\ \color{#d457bf}my\ \color{#ed8cdd}fr\color{#ffd4f8}ie\color{#ffe6fb}nd/\color{#ffe6fb}oomf!\ \color{#ffffff}♡$$
 </p>
 
 <p align=center>
-$$\color{#ffffff}I\ \color{#ffe6fb}som\color{#ffd4f8}et\color{#ed8cdd}imes\ \color{#d457bf}take\ \color{#c230aa}some\ \color{#d457bf}ti\color{#ed8cdd}me\ \color{#ffd4f8}to\ \color{#ffe6fb}rep\color{#ffffff}ly,\ \color{#ffe6fb}pls\ \color{#ffd4f8}be\ \color{#ed8cdd}pat\color{#d457bf}ient$$
+$$\color{#ffffff}♡\ \color{#ffffff}I\ \color{#ffe6fb}som\color{#ffd4f8}et\color{#ed8cdd}imes\ \color{#d457bf}take\ \color{#c230aa}some\ \color{#d457bf}ti\color{#ed8cdd}me\ \color{#ffd4f8}to\ \color{#ffe6fb}rep\color{#ffffff}ly,\ \color{#ffe6fb}pls\ \color{#ffd4f8}be\ \color{#ed8cdd}pat\color{#d457bf}ient\ \color{#d457bf}♡$$
 </p>
 
 <p align=center>
-  $$\color{#ff9cd4}︵\color{#ffb0dd}..*\color{#ffd1eb}˳˳.\color{#ffe6f4}꒰𓊆\color{#ffffff} 𖹭 \color{#ffe6f4}𓊇꒱\color{#ffd1eb}.˳.\color{#ffb0dd}*..\color{#ff9cd4}︵$$
+  $$\color{#ff9cd4}︵\color{#ffb0dd}..*\color{#ffd1eb}˳˳.\color{#ffe6f4}꒰𓊆♡𓊇꒱\color{#ffd1eb}.˳.\color{#ffb0dd}*..\color{#ff9cd4}︵$$
  </p
 
  <p align="center">
@@ -266,7 +266,7 @@ $$\color{#ffffff}୨୧\ \color{#ffffff}Zoo\color{#ffe6f4}phi\color{#ffd1eb}lia\
 $$\color{#ffffff}✦\ \color{#ffffff}Non-\color{#ffe6f4}con/\color{#ffd1eb}ra\color{#ffb0dd}pe\ \color{#ffb0dd}kink\ \color{#ff9cd4}su\color{#ffb0dd}pp\color{#ffd1eb}or\color{#ffe6f4}ers\ \color{#ffe6f4}✦$$
 </details>
 
-$$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰\color{#ffffff}𖹭\color{#ffe6fb}꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
+$$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}꒰\color{#ffffff}✦︎\color{#ffe6fb}꒱\color{#ffd4f8}. ⊹\color{#ed8cdd}︶୨\color{#d457bf}୧︶$$
 
 ![Now Playing](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=Nadnaddd)
 
@@ -290,7 +290,7 @@ $$\color{#d457bf}︶୨\color{#ed8cdd}୧︶\color{#ffd4f8}⊹ .\color{#ffe6fb}�
 
 
 <p align="center">
- $$\color{#ffb0dd}︶\color{#ffd1eb}⏔⏔⏔\color{#ffe6f4}꒰\color{#ffffff}᧔𖹭᧓\color{#ffe6f4}꒱\color{#ffd1eb}⏔⏔⏔\color{#ffb0dd}︶$$
+ $$\color{#ffb0dd}︶\color{#ffd1eb}⏔⏔⏔\color{#ffe6f4}꒰୨♡୧꒱\color{#ffd1eb}⏔⏔⏔\color{#ffb0dd}︶$$
 </p>
  
 
