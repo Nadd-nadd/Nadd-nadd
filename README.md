@@ -33,7 +33,7 @@ $$\color{#ffffff}꒰১\ \color{#ffffff}I\ \color{#ffe6f4}LO\color{#ffd1eb}VE\ \
 
 $$\color{#ffffff}꒰১\ \color{#ffffff}I'm\ \color{#ffe6f4}5\color{#ffd1eb}te\color{#ffb0dd}en!\ \color{#ff9cd4}My\ \color{#ffb0dd}bd\color{#ffd1eb}ay\ \color{#ffe6f4}is\ \color{#ffffff}on\ \color{#ffe6f4}Au\color{#ffd1eb}gu\color{#ffb0dd}st\ \color{#ff9cd4}2nd\ \color{#ff9cd4}♡\ \color{#ffb0dd}໒꒱$$
 
-$$\color{#ffffff}꒰১\ \color{#ffffff}I'm\ \color{#ffe6f4}an\ \color{#ffd1eb}INTP-A,\ \color{#ffb0dd}sp9\ \color{#ff9cd4}wi\color{#ffb0dd}th\ \color{#ffd1eb}945\ \color{#ffe6f4}tri\color{#ffffff}type\ \color{#ffe6f4}/\color{#ffd1eb}trif\color{#ffb0dd}ix!\ \color{#ffb0dd}໒꒱$$
+$$\color{#ffffff}꒰১\ \color{#ffffff}I'm\ \color{#ffe6f4}an\ \color{#ffd1eb}INTP-A,\ \color{#ffb0dd}sp9w1\ \color{#ff9cd4}wi\color{#ffb0dd}th\ \color{#ffd1eb}945\ \color{#ffe6f4}tri\color{#ffffff}type\ \color{#ffe6f4}/\color{#ffd1eb}trif\color{#ffb0dd}ix!\ \color{#ffb0dd}໒꒱$$
 
 $$\color{#ffffff}꒰১\ \color{#ffffff}I'm\ \color{#ffe6f4}a\ \color{#ffe6f4}snow\ \color{#ffd1eb}le\color{#ffb0dd}op\color{#ff9cd4}ard\ \color{#ffb0dd}ke\color{#ffd1eb}mo\color{#ffe6f4}no\color{#ffffff}mi\color{#ffe6f4}mi\ \color{#ffe6f4}+\ \color{#ffd1eb}I\ \color{#ffb0dd}plan\ \color{#ff9cd4}on\ \color{#ffb0dd}be\color{#ffd1eb}co\color{#ffe6f4}ming\ \color{#ffffff}a\ \color{#ffe6f4}fu\color{#ffd1eb}rry!\ \color{#ffb0dd}I\ \color{#ff9cd4}don't\ \color{#ffb0dd}have\ \color{#ffd1eb}any\ \color{#ffd1eb}gear\ \color{#ffe6f4}yet\ \color{#ffffff}tho..\ \color{#ffffff}໒꒱$$
 
