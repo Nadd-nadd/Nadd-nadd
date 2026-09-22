@@ -152,10 +152,10 @@ $$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}ha\color{#ffd1eb}ve\ \col
  
  
 <p align=center>
-$\color{#ffe8bd}{⋮}$ <a href="https://github.com/pt-contributers">.˳˳.</a>   <a href="https://github.com/pt-walk-of-fame">₊⊹</a>  <a href="https://github.com/pt-fashion">˚‧‬</a> <a href="https://github.com/fans-town">︶︶︶</a>  <a href="https://github.com/pt-nominations">꒰𓊆</a>  <a href="https://github.com/pt-medals">୨୧</a>  <a href="https://github.com/ponytown-nominations">𓊇꒱</a>  <a href="https://github.com/FOLKTOWN">︶︶︶</a> <a href="https://github.com/cosplaytown">‧˚</a>  <a href="https://github.com/character-town">⊹₊</a>  <a href="https://github.com/Ponytowns-rewards">.˳˳.</a> $\color{#ffe8bd}{⋮}$
+$\color{#ffe8bd}{⋮}$ <a href="https://github.com/pt-contributers">.˳˳.</a>   <a href="https://github.com/pt-walk-of-fame">₊⊹</a>  <a href="https://github.com/pt-fashion">˚‧‬</a> <a href="https://github.com/fans-town">︶︶︶</a>  <a href="https://github.com/pt-nominations">꒰𓊆</a>  <a href="https://github.com/pt-medals">୨୧</a>  <a href="https://github.com/ponytown-nominations">𓊇꒱</a>  <a href="https://github.com/FOLKTOWN">︶︶︶</a> <a href="https://github.com/cosplaytown">‧˚</a>  <a href="https://github.com/character-town">⊹₊</a>  <a href="https://github.com/choco-town">.˳˳.</a> $\color{#ffe8bd}{⋮}$
 </p>
 <p align=center>
-$\color{#ffd78c}{+}$  $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
+$\color{#ffd78c}{+}$  $$\color{#ffe8bd}Me\ \color{#fff5e3}and$$ <a href="https://github.com/Uictim">Uictim</a> $$\color{#ffffff}in$$ <a href="https://github.com/pt-friendships">pt-friendships</a> $$\color{#ffffff};$$ <a href="https://github.com/appreciation-pt">appreciation-pt</a> $$\color{#fff5e3}BLOW\color{#ffe8bd}ING\color{#ffd78c}FUSED\color{#ffd78c}UO\ \color{#ffe8bd}<3$$
 </p>
  <p align=center>
   $\color{#ffd78c}{+}$  $$\color{#ffe8bd}Pt's\ \color{#fff5e3}Nar\color{#ffffff}rator's\ \color{#fff5e3}HE\color{#ffe8bd}AVI\color{#ffd78c}EST\ \color{#ffd78c}kin$$ <a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin</a> $$\color{#ffe8bd}<3$$
