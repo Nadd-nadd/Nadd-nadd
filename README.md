@@ -152,7 +152,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}ha\color{#ffd1eb}ve\ \col
  
  
 <p align=center>
-$\color{#ffe8bd}{⋮}$  <a href="https://github.com/kaotown">✦</a> <a href="https://github.com/pt-contributers">.˳˳.</a>   <a href="https://github.com/pt-walk-of-fame">₊⊹</a>  <a href="https://github.com/pt-fashion">˚‧‬</a> <a href="https://github.com/fans-town">︶︶︶</a>  <a href="https://github.com/pt-nominations">꒰𓊆</a>  <a href="https://github.com/pt-medals">୨୧</a>  <a href="https://github.com/ponytown-nominations">𓊇꒱</a>  <a href="https://github.com/FOLKTOWN">︶︶︶</a> <a href="https://github.com/cosplaytown">‧˚</a>  <a href="https://github.com/character-town">⊹₊</a>  <a href="https://github.com/choco-town">.˳˳.</a>  <a href="https://github.com/kaotown">✦</a> $\color{#ffe8bd}{⋮}$
+$\color{#ffe8bd}{⋮}$  <a href="https://github.com/kaotown">✦</a> <a href="https://github.com/pt-contributers">.˳˳.</a>   <a href="https://github.com/pt-walk-of-fame">₊⊹</a>  <a href="https://github.com/pt-fashion">˚‧‬</a> <a href="https://github.com/fans-town">︶︶︶</a>  <a href="https://github.com/pt-nominations">꒰𓊆</a>  <a href="https://github.com/pt-medals">୨୧</a>  <a href="https://github.com/ponytown-nominations">𓊇꒱</a>  <a href="https://github.com/FOLKTOWN">︶︶︶</a> <a href="https://github.com/cosplaytown">‧˚</a>  <a href="https://github.com/character-town">⊹₊</a>  <a href="https://github.com/choco-town">.˳˳.</a>  <a href="https://github.com/music-town">✦</a> $\color{#ffe8bd}{⋮}$
 </p>
 
  <p align=center>
