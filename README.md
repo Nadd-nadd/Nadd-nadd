@@ -304,7 +304,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}If\ \color{#ffe6f4}you\color{#ffd1eb}'re\ \
 
 
 <p align="center">
-$$\color{#ffffff}✦•\color{#ffe6f4}๑⋅\color{#ffd1eb}⋯$$ <a href="https://nadnad.atabook.org">Ata 𖹭</a> $\color{#ffd1eb}{⋮}$ <a href="https://nadnad2.straw.page">Sp 𖹭! (heavy wip..)</a> $\color{#ffb0dd}{⋮}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc 𖹭</a> $\color{#ffb0dd}{⋮}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page 𖹭</a> $\color{#ffd1eb}{⋮}$ <a href="https://guns.lol/nadnadd ">Guns.lol 𖹭</a> $$\color{#ffd1eb}⋯\color{#ffe6f4}⋅๑\color{#ffffff}•✦$$
+$$\color{#ffffff}✦•\color{#ffe6f4}๑⋅\color{#ffd1eb}⋯$$ <a href="https://nadnad.atabook.org">Ata 𖹭</a> $\color{#ffd1eb}{⋮}$ <a href="https://nadnad2.straw.page">Sp 𖹭! (heavy wip..)</a> $\color{#ffb0dd}{⋮}$ <a href="https://pronouns.cc/@Nadnad">Prns.cc 𖹭</a> $\color{#ffb0dd}{⋮}$ <a href="https://en.pronouns.page/@Nadnad">Prns.page 𖹭</a> $\color{#ffd1eb}{⋮}$ <a href="https://guns.lol/nadnadd">Guns.lol 𖹭</a> $\color{#ffd1eb}{⋮}$ <a href="https://www.sharespotapp.com/nadnad">Sharespot 𖹭</a> $$\color{#ffd1eb}⋯\color{#ffe6f4}⋅๑\color{#ffffff}•✦$$
 </p>
 
 <p align="center">
