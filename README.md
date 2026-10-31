@@ -122,7 +122,7 @@ $$\color{#ffffff}✦\ \color{#ffffff}I\ \color{#ffe6f4}te\color{#ffd1eb}nd\ \col
 </p>
 
 <p align="center">
-$$\color{#ffffff}✦\ \color{#ffffff}I'm\ \color{#ffe6f4}di\color{#ffd1eb}ag\color{#ffb0dd}nos\color{#ff9cd4}ed\ \color{#ffb0dd}wi\color{#ffd1eb}th\ \color{#ffe6f4}au\color{#ffffff}ti\color{#ffe6f4}sm.\ \color{#ffd1eb}Pls\ \color{#ffb0dd}be\ \color{#ff9cd4}pat\color{#ffb0dd}ie\color{#ffe6f4}nt,\ \color{#ffffff}I\ \color{#ffe6f4}may\ \color{#ff9cd4}ta\color{#ffb0dd}ke\ \color{#ffd1eb}some\ \color{#ffe6f4}ti\color{#ffffff}me\ \color{#ffe6f4}to\ \color{#ffd1eb}pr\color{#ffb0dd}oce\color{#ff9cd4}ss\ \color{#ffb0dd}in\color{#ffd1eb}for\color{#ffe6f4}ma\color{#ffffff}ti\color{#ffe6f4}on..\ \color{#ffe6f4}✦$$
+$$\color{#ffffff}✦\ \color{#ffffff}I'm\ \color{#ffe6f4}di\color{#ffd1eb}ag\color{#ffb0dd}nos\color{#ff9cd4}ed\ \color{#ffb0dd}wi\color{#ffd1eb}th\ \color{#ffe6f4}au\color{#ffffff}ti\color{#ffe6f4}sm\ \color{#ffe6f4}(+su\color{#ffffff}spe\color{#ffe6f4}cted\ \color{#ffd1eb}anxie\ \color{#ffd1eb}ty)\ \color{#ffd1eb}Pls\ \color{#ffd1eb}Pls\ \color{#ffb0dd}be\ \color{#ff9cd4}pat\color{#ffb0dd}ie\color{#ffe6f4}nt,\ \color{#ffffff}I\ \color{#ffe6f4}may\ \color{#ff9cd4}ta\color{#ffb0dd}ke\ \color{#ffd1eb}some\ \color{#ffe6f4}ti\color{#ffffff}me\ \color{#ffe6f4}to\ \color{#ffd1eb}pr\color{#ffb0dd}oce\color{#ff9cd4}ss\ \color{#ffb0dd}in\color{#ffd1eb}for\color{#ffe6f4}ma\color{#ffffff}ti\color{#ffe6f4}on..\ \color{#ffe6f4}✦$$
 </p>
 
 
